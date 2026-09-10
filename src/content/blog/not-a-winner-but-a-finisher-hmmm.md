@@ -1,24 +1,24 @@
 ---
 title: "Not A Winner, But A FINISHER... Hmmm..."
-description: "[caption id=\"attachment_2727\" align=\"alignleft\" width=\"15\u0465\u0361t\ud957\udd5c\u0365\u9535\u0571sr\"FFS#&&FvR\"7&3&GG3VFv6w6FV\\Y\u030cLLL\u0618YK\u0208[HYHMLZY'=\"201\" />[/caption] I ran the WINNER... just FINI"
+description: "[caption id=\"attachment_2727\" align=\"alignleft\" width=\"150\" caption=\"Finisher?\"] [/caption] I ran the 12Ks of Christmas race yesterday and when I crossed the fi"
 pubDate: "2010-12-12"
 author: "Dale Sackrider"
 tags: ["Weight Loss Journal"]
 draft: false
 ---
 
-[caption id="attachment_2727" align="alignleft" width="15ѥ͡t񥵜ͥ锵ձsr"FFS#&&FvR"7&3&GG3VFv6w6FV\Y̌LLLؘYKȈ[HYHMLZY'="201" />[/caption]
+[caption id="attachment_2727" align="alignleft" width="150" caption="Finisher?"]<img class="size-full wp-image-2727" title="12kbadge" src="https://iquitagain.com/wp-content/uploads/2010/12/12kbadge.png" alt="" width="150" height="201" />[/caption]
 
-I ran the <a href="http://www.12krո-́ɥѵ́Ʌѕɑ䁅ݡ$v7&76VBFRf6ƖRv2vfVFR$2b6&7F9
-JHSTTL0YK0Y\HۈHYH]' reads: Finisher.  I'm not sure how I feel about that.(4)%́ձЁѼѡѥ́ѡЁɔw7v֖r&VBגVB&vBr*vVFWFVBB	YH]\X\[YYHH[H[H[Hۙ\', I thought the badge was just a second piece of candy. ]ѡѱɰЁѼ$ѽЁѼv&RƗFS7BFFwBРХFR7BFrvFVBi\[[[H[Z[\\HYXHو[Hgrry.  Actually, it wasn't until several minutes later thЁ$ݸͅ܁ݡЁٕ͡
-͡w#*FRFVvBWfW,*67W'&VL*FRFBvVFwBi[\HXKBB\]HH[YHو^H]Z]['isn't something I consider to be part of my character.  $ѡ$EեиЁѡ䁡vBv2&Rb$fVBv"*FRFffW&V6R2	XK]]\K0IݙHYوZYHZ['ure like you might think about pole vaulter trying to vauЀȁЁݥѠ؁Ё
-MݥѡrGFVB'WBǒ&V6W6R6RWfW"B&V6BF)Y[]0X[0HYH΋\]Z]YZ[KK^Ygar-on-purpose/328-my-biggest-secret-i-have-never-told-anyѡ̵ɔɽѥٔѡ՝ٔɕѡv涖rFBRРХvVVVBגWW2F2&rFH\[H]\\YHH[]ܙHSgSHER.  It doesn't read <em>WINNER...</em> just FINISHER.
-$͡
-=ȁEեѕ=ȁɔ=ȁMv66W727F'VfFs*2F2FRf'7Bf6b[\\BBH\][\YZY\\'he one where the last four contestants run the Biggest Lo͕ȁ5Ʌѡ
-Q͔́ɱ́ݕɔ́٥rW7BfWrF2&Vf&RFRW6FRv2fVBBy^H\H[[Z[\H0IݙHY[\YHY['s on Facebook, how did I get started running and what did$ѼЁ՝͡ѼոɅ̸
-QwB7vW"6VBvfR6Rg&&vvW7B6W"6FW7FBY\YZ[HZY]\ZHH\[ walk, then jog, then run a mile - you can do this".
+I ran the <a href="http://www.12krun.com/">12Ks of Christmas race</a> yesterday and when I crossed the finish line I was given the 12Ks of Christmas (tm) FINISHER 2010 badge.  Right there on the badge it reads: Finisher.  I'm not sure how I feel about that.
 
-F%9%M!H
-$ѡ$ѡи
-$%9%M!H
-]r&WBW"W&W*vB&RRFrF6RvVvC\H[H[[\][H\Y0\H[HHgNISHER?
+Its difficult to explain the mix of emotions that are swimming around my head right now.  When they handed it to me it was accompanied by a candy cane and to be honest, I thought the badge was just a second piece of candy.  When the little girl handed it to me, I only took it to be polite; I almost didn't.
+
+The last thing I wanted after running 7 and a half miles was a piece of candy to carry.  Actually, it wasn't until several minutes later that I looked down and saw what she had given me.  Finisher?  The thought never occurred to me that I wouldn't finish the race.
+
+Despite the name of my blog, quitting isn't something I consider to be part of my character.  I named the blog "I Quit... Again!" but the idea in my head was more of "I failed... Again!".  The difference is subtle, but its there.  I've thought of weight lose failure like you might think about pole vaulter trying to vault 22 feet high with a 16 ft pole.  She will fail in the attempt, but only because she never had a real shot to begin with.  Recent <a href="https://iquitagain.com/a-year-on-purpose/328-my-biggest-secret-i-have-never-told-anyone-this-before">introspective thoughts</a> have me rethinking that one.
+
+When I opened my eyes this morning, the first thing I saw was this badge - and that word - FINISHER.  It doesn't read <em>WINNER...</em> just FINISHER.  Am I a finisher?  Or a Quitter? Or a Failure? Or a Success Story unfolding?  Is this the first finish of many finishes?
+
+I was watching this week's Biggest Loser; the one where the last four contestants run the Biggest Loser Marathon.  These guys and girls were ~100lbs heavier just a few months before the episode was filmed, and now they are running 26.2 miles!  I've been asked by friends on Facebook, how did I get started running and what did I do to get in good enough shape to run races.  The best answer I could give came from Biggest Loser contestant, Frado this week when he said, "get up, take a step, then walk, then jog, then run a mile - you can do this".
+
+FINISHER.  I think I like that.  I am a FINISHER.  What about your journey?  What are you doing to lose weight? Are you going to finish what you started?  Are you a FINISHER?

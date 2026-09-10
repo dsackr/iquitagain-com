@@ -1,11 +1,22 @@
 ---
 title: "Biggest Loser Fans are still the largest traffic to this site..."
-description: "I'm guessing its because I have tried out for the Biggest1\u0355\u0201QXM\u0701\u0355\u0655\u0245\u0465\u0301\u0655\u0201\u0461\u0401\u0701\u5545\u0330rvVBFRG&ff2vWBW&RBVBvKH[HYZ[H]\\0[H]X\\\u06c8\u0648HYest Loser starts, I have a spike in traffic"
+description: "I'm guessing its because I have tried out for the Biggest Loser TV Show several times over the last few years, but when I look at the traffic I get here at I Qu"
 pubDate: "2011-03-24"
 author: "Dale Sackrider"
 tags: ["Weight Loss Journal"]
 draft: false
 ---
 
-I'm guessing its because I have tried out for the Biggest1͕ȁQXM܁͕ٕɅѥٕ́ȁѡЁ܁啅̰rvVBFRG&ff2vWBW&RBVBvKH[HYZ[H]\0[H]X\ۈوHYest Loser starts, I have a spike in traffic.  When a seaͽ̰$͕Ʌ
-]ɍ́vFBV6R&vvW7B6W"VFF26VR7RYX˃BBHY\X\\\][[H IQA are usually something like "<a title="What happens aЁ	Ё1͕ȁՑѥɕ輽եхrvVvF72'F6W2vBֆV2B&vvW7B6W"VF[ۈ]\[]HY\\]Y][ۏO0g have blogged several times about my experience at the 	Ё1͕ȁՑѥ̀$ЁͅѡЁєrvWGFrFR6rVVBVFFr*FRƖW2	\Hۙ]H[H\H[HY]Hو'great people while waiting in line, some of which I stillݥѠݥѕȁѡɽ՝4(4)$ͼrFWB6RGv6RBfVƗRƒGv6RBW"ZK\[\\\Y[X\ˈ0Hۛ]\'long as the show is on the air, people will be interestedͽѡɵѥ$ٔѡ́ЁѼv&RW7BWfW"&VǒFVFVBF&Rf&r	]X]^H\ۘ[\^HHZYBBHY'start out trying to "build a clan" following for this "weЁ̈ЁѕȁѡЁ͕ٕɅѡ́vrF2V6ǒ&VƗVBFBVVFVBF&Rח6Vb	YH\[X\ٝ[H[Y\ˈ0H[o realized that there isn't a LARGE fan base for "Dale SaɥȰ%$ɥ́Ѽ͔ݕЁͽѥ́́w6WFW2FW6wB"&rVG&W2РФג&VFW"&6R2&[LL[HH^Hۈ]\YH]Z\[L' or 150 during Biggest Loser events.  If I were to startѡ́	Ё1͕Ȱ$ݽձ䁉vRF'VBfvrf"F2&r'WBFBFW6wB\HYKBBH[H[۝[YH\H^H\ۘ['struggles with weight loss, exercise, dieting, etc - and ͽЁѡɔյѼѡ́́w7&FB6*'WBbBFBw26F*I\H\HY[X]\XX[Y[[\ ads - I have abandoned the idea of monetizing the blѕ$她䁉ЁѼЁrW&ƖrגF6FBvfR&V6&BbגƙٙHY\YKBB܈[HY\er Fans - I'm sure there are a ton of other blogs that wiٔԁݡЁԁɔȀ剔Ёw"GvW&RFBvV'WB7FǒW&RBRv[ܝY][Y\[\Z[[[Y\X]'ow I quit on myself often while trying to lose weight...
+I'm guessing its because I have tried out for the Biggest Loser TV Show several times over the last few years, but when I look at the traffic I get here at I Quit... Again!, I am seeing a pattern.  When a new season of the Biggest Loser starts, I have a spike in traffic.  When a season ends, I see a spike in traffic.  When commercials run that announce Biggest Loser auditions, I see a spike in traffic.
+
+The biggest search terms that send people to IQA are usually something like "<a title="What happens at a Biggest Loser Audition?" href="https://iquitagain.com/weightloss-articles/what-happens-at-a-biggest-loser-audition">What happens at a Biggest Loser Audition?</a>".  I have blogged several times about my experience at the Biggest Loser auditions - and I must say that despite not getting on the show, I enjoyed auditioning.  The lines were long but the people were fun. I got to met a lot of great people while waiting in line, some of which I still keep up with on twitter and through email.
+
+I also got to met Sione (twice) and Felipe, Ali (twice) and her mom, Blake, as well as other cast members.  I know that as long as the show is on the air, people will be interested in some of the information I have on this blog - but to be honest, I never really intended IQA to be a fan blog.  Its about my personal journey to lose weight.
+
+I did start out trying to "build a clan" following for this "weight loss" blog - but after the first several months of doing this, I quickly realized that I needed to be myself if I was going to successfully post blog entries.  I also realized that there isn't a LARGE fan base for "Dale Sackrider, II tries to lose weight and sometimes fails and sometimes doesn't" blog entries.
+
+My reader base is around 10 to 50 people a day on average with spikes into 100 or 150 during Biggest Loser events.  If I were to start blogging all things Biggest Loser, I would likely be able to build a following for this blog, but that doesn't inspire me.
+
+I am going to continue to share my personal struggles with weight loss, exercise, dieting, etc - and if someone out there stumbled onto this blog and finds inspiration in it, cool.  But if not, that's cool too.  There are no affiliates, no product placements, no banner ads - I have abandoned the idea of monetizing the blog and instead I'm trying my best to be honest and open - journaling my path so that I will have a record of my life through this struggle.
+
+So for all those Biggest Loser Fans - I'm sure there are a ton of other blogs that will give you what you are looking for - and maybe a post or two here that will help - but mostly here at IQA you will find short sometimes entertaining blog entries about how I quit on myself often while trying to lose weight...

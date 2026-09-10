@@ -1,13 +1,20 @@
 ---
 title: "Not weighing yourself down: by Albert Tubbs"
-description: "I had a good day today. My biggest problem was fighting \u0461\u025d\u047c\u0755\u03554(4)=\u0461\u055d\u0465\u0301\u027dt6V2BW\"vVvW'6Vb&RF6R\u06dd ]\\HYZKHY\\]ZY[ yourself often doesn\u2019t help you listen to your body b"
+description: "I had a good day today. My biggest problem was fighting the urge to weigh myself. One of the suggestions from Mckenna is not your weigh yourself any more than o"
 pubDate: "2009-12-05"
 author: "Dale Sackrider"
 tags: ["Tubbs' Challenge"]
 draft: false
 ---
 
-I had a good day today.  My biggest problem was fighting ѡɝѼݕ͕4(4)=ѡ՝ѥ́ɽt6V2BW"vVvW'6Vb&RF6R۝
-]\HYZKHY\]ZY[ yourself often doesn’t help you listen to your body buЁѼѡ͍4(4)$ЁЁӊéՔ%$ݕrח6VbvRG'rF6RvVvBBBv2&BV)\HX^HX]\ˈH[\[^HX][\\X['y starving myself off and on all the time.
+I had a good day today.  My biggest problem was fighting the urge to weigh myself.
 
-Being in tuݥѠݡЁȁ䁥́$ѡѡЁ́vrFVf"RРХ7FvBFrrV6ZYBBΈH[[HX\[\]HXY' or are reading “I can make you thin”.
+One of the suggestions from Mckenna is not your weigh yourself any more than once a month (every two weeks tops). The thought is that weighing yourself often doesn’t help you listen to your body but to the scale.
+
+I get it and it’s true. If I weighed myself while trying to lose weight and it was a bad number, I may eat less. I understand my eating less was really starving myself off and on all the time.
+
+Being in tune with what your body is goal and I think that is beginning to happen for me.
+
+Still, I want to know how much I weigh.
+
+PS: I would enjoy hearing others who have read or are reading “I can make you thin”.

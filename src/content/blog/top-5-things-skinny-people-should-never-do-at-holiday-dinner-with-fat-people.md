@@ -1,10 +1,26 @@
 ---
 title: "TOP 5 THINGS SKINNY PEOPLE SHOULD NEVER DO AT HOLIDAY DINNER WITH FAT PEOPLE"
-description: "I was reading through some of my old posts - reflecting o\u4045\u047c\u0761$\u027d\u0301\u0461\u0302w7Bg&V\"vBfVBBF&R2B2 ]\\[YH[\\H]YZ[B[OH^'-align: center;\"> ( 2V&V&&K]\u065d[Y\\[X][[H\u0708\u0759\\X]\\\u02f0'Lets be hon"
+description: "I was reading through some of my old posts - reflecting on 2009 and looking ahead to 2010 when I came across this post from a year ago and I found it to be as o"
 pubDate: "2009-12-26"
 author: "Dale Sackrider"
 tags: ["Weightloss Articles"]
 draft: false
 ---
 
-I was reading through some of my old posts - reflecting o䁅Ѽݡ$ɽ́ѡ̂w7Bg&V"vBfVBBF&R2B2	]\[YH[\H]YZ[B[OH^'-align: center;"><a href="https://iquitagain.com/weightlo̵ѥ̽ееɥѵ̵ȵչѥԵɕѡr#FRFw26VR6VBWfW"FBƖF[\]][OOB^\BB]\[ough being 50, 60, or 100lbs overweight – but having toѕѼͽݡٕ́ȁٕ́ݕаvƶr&WB6rFB(	7BRVG>(	2V&V&&K]ٝ[Y\[X][[H܈ݙ\X]\˰'Lets be honest here – you may really need to lose thoseձ̃L剔ѡЁ݅ͻeЁѡЁvFVf"R(	2'WB6rWBVBg&BbfBFIX\[HZH^Z[HܘXXY8$8'HX[Hhouldn’t, but I just gotta try this new crack”... <a ɕ輽եхݕѱ̵ѥ̽еr6&7F2FW"VFזR&VBF2#&VB&SРФ]\ܙX]΃BBHYHZYX\X\everyone-is-fat-including-you">Everyone is fat including 4(4(񄁡ɕݕѱ̵ѥ̽ɥwVvF斶RW2#גS6&R'VvF斶RW3BHYH΋\]Z]YZ[KZYX\X\p-five-reasons-to-stay-fat">Top Five Reasons To Stay Fat<4(4(񄁡ɕݕѱ̵ѥ̽䵵ɔwvW&R2'VFR26Rv2#^(	&RFdBFVBW&RσBBHYHZYڛ\[ܜKZK]\[]KX]Z[Kgfat">Sorry I was late, but I’m FAT</a>
+I was reading through some of my old posts - reflecting on 2009 and looking ahead to 2010 when I came across this post from a year ago and I found it to be as on point as ever and thought I would share it again:
+<h2 style="text-align: center;"><a href="https://iquitagain.com/weightloss-articles/dont-eat-christmas-dinner-until-you-read-this">Top 5 Things skinny people should never do at a holiday Dinner with Fat People</a></h2>
+Excerpt:
+
+Its hard enough being 50, 60, or 100lbs overweight – but having to listen to someone who has never been 20lbs overweight, talking about losing that ‘last 5 pounds’ is unbearable.  It often triggers an eating binge for overeaters.  Lets be honest here – you may really need to lose those 5lbs – and maybe that piece of pie wasn’t the best idea for you – but saying out loud infront of a food addict is kinda like saying to a crackhead – “I really shouldn’t, but I just gotta try this new crack”... <a href="https://iquitagain.com/weightloss-articles/dont-eat-christmas-dinner-until-you-read-this">Read More</a>
+
+A Few other great posts:
+
+<a href="/weightloss-articles/everyone-is-fat-including-you">Everyone is fat including you</a>
+
+<a href="/weightloss-articles/my-500-calorie-run-with-nike-plus">My 500 Calorie Run with Nike Plus</a>
+
+<a href="https://iquitagain.com/weightloss-articles/top-five-reasons-to-stay-fat">Top Five Reasons To Stay Fat</a>
+
+<a href="/weightloss-articles/if-only-more-people-were-as-rude-as-she-was">You’re Too FAT to Eat Here!</a>
+
+<a href="/weightlossjournal/sorry-i-was-late-but-im-fat">Sorry I was late, but I’m FAT</a>

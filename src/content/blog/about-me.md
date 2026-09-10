@@ -1,6 +1,6 @@
 ---
 title: "About Me"
-description: "My Weight My Family email: dale at sackrider \u0401\u025c4)\ud8d0\udc61\u0255\u8f3d\u0739\u027dvRCCS3b#GGwwrf6V&6&fR YLLLM NLN\u034fOB^\\XNHYH\u02db^\\XKcom/dalesackrider\">http://www.myspace.com/dalesackrider I al"
+description: "I'm Dale and I'm an overeater. [Corporate \" HI DALE!\" ] My Weight At my heaviest, I weighed in at 330lbs. When I started this blog, I was just under 300lbs - bu"
 pubDate: "2008-12-30"
 author: "Dale Sackrider"
 tags: ["Weight Loss Journal"]
@@ -8,22 +8,34 @@ draft: false
 ---
 
 <hr />
-<p style="text-align: center;"><span style="font-ͥ൱ɝ$$ٕɕѕȸsУ7GS'FWBƖv6VFW##77GS&fB6S[\Nȏܜܘ]H[OHSHH[OO[BB
+<p style="text-align: center;"><span style="font-size: x-large;">I'm Dale and I'm an overeater. </span></p>
+<p style="text-align: center;"><span style="font-size: x-large;">[Corporate "<em>HI DALE!"</em>]</span></p>
+
+
 <hr />
 
 <h3>My Weight</h3>
-<p style="padding-left: 3Ё䁡٥а$ݕЀ̻
-]$v'FVBF2&rv2W7BVFW"3'2'WBFRvVvIX\[HYH\\X\[HH'ich is what I weighed when I begain this journey.  I havɕͽ́Ѽ݅ЁѼ͔ݕаЁѡvW&RvBVVvFFfFRRF7GVǒ7F'B6ryZY]\ۉ[[HX[^Y^HX][\\و'an addiction that it really started to click for me.  It݅́ɕ݅ѡ͕́ЂwW'62V6V6W"FF涖r$vFF7B"G'YYK]Hܝ][^\K܈HXH܈][gon (although this blog might be!).  I don't think of myś٥ѥѡ́ѥ́ЁͽѡvrFRG2FR&B66R&VBV666V6VǒIHXZ[]\X\ۙH^H]H[YKg
+<p style="padding-left: 30px;">At my heaviest, I weighed in at 330lbs.  When I started this blog, I was just under 300lbs - but the weight loss ticker in the side bar is marching from 306lbs - which is what I weighed when I begain this journey.  I have many reasons to want to lose weight, but none of them were good enough to motivate me to actually start losing weight.  It wasn't until I realized my eating is part of an addiction that it really started to click for me.  It was a real wake up call - thinking of yourself as a fat person is much easier than thinking "I'm an addict" - trust me, its not a crutch, an excuse, or a plea for attention (although this blog might be!).  I don't think of myself as a victim and this addiction is not something happening to me - its the road I choose albeit unconsciencely.  Now I'm making better choices, one day at a time.</p>
 
 
 <hr />
 
 <h3>My Family</h3>
-<p style="padding-left$ɥѼѥհݽѡЁ́ݦvv2&RFRfRbגƖfR*vRfRF&VRG2	[^[\[\
+<p style="padding-left: 30px;">I am married to a beautiful woman that is and will always be the love of my life.  We have three kids - Alexander "Zander" (b.2004), Alexis "Lexi" (b.2007), and Aiden (b.2009).  I should have lost the weight years ago for them... but 'should haves' are useless, its want we do today that counts.</p>
 
-K[^\^H
-K['Aiden (b.2009).  I should have lost the weight years agoȁѡЀ͡ձٕ̜ɔ͕̰́݅ЁݔvFFFFB6VG2РРУƇ"РУƃ3ג#3[OHY[[YȏHܚ[XY\
-gxplains the blog, uh?).  I spend a lot of time here on tаЁ$ٔ䁩ݽɭȁɆwF6bR6RRf"F"GvvƖVǒFۙ^HKLMKBBBσBBϓ^H۝X[σg
-<p style="padding-left: 30px;">email: dale at sackrider Ёɜ4)񄁡ɕ輽ܹɽvRCCS3b#GGwwrf6V&6&fR	YLLLMNLN͏OB^\XNHYH˛^\XKcom/dalesackrider">http://www.myspace.com/dalesackrider</4)ݥѕ񄁡ɕ輽ݥѕȹͅȈ輽wvGFW"6G66#ЦƖVF&Vc&GGwwrƖY[K[XܚY\˛[Y[K[XܚY'er</a></p>
-I also have a personal blog (<a href="http://ͅɥȹɜ輽ͅɥȹɜ䁉r&Vc&GGvW&VGFV&&R6#GGvW&VGFV&)KOOK[[ۛ[H[\[\
-HYH'p://sannsack.com">http://sannsack.com</a>).
+
+<hr />
+
+<h3>My Job</h3>
+<p style="padding-left: 30px;">I work in technologies (explains the blog, uh?).  I spend a lot of time here on the net, but I do have a day job working for a big corporation - so if you lose me for a day or two, I'm likely doing my 9-2-5.</p>
+
+
+<hr />
+
+<h3>My Contact Info</h3>
+<p style="padding-left: 30px;">email: dale at sackrider dot org
+facebook: <a href="http://www.facebook.com/profile.php?id=1114591836">http://www.facebook.com/profile.php?id=1114591836</a>
+myspace: <a href="http://www.myspace.com/dalesackrider">http://www.myspace.com/dalesackrider</a>
+twitter: <a href="http://twitter.com/dsackr">http://twitter.com/dsackr</a>
+linkedin: <a href="http://www.linkedin.com/in/sackrider">http://www.linkedin.com/in/sackrider</a></p>
+I also have a personal blog (<a href="http://sackrider.org">http://sackrider.org</a>), a ministry blog (<a href="http://wereadthebible.com">http://wereadthebible.com</a>), and an online hosting business (<a href="http://sannsack.com">http://sannsack.com</a>).

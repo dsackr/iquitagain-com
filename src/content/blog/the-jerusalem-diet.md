@@ -1,32 +1,38 @@
 ---
 title: "The Jerusalem Diet"
-description: "[caption id=\"attachment_2152\" align=\"alignleft\" width=\"10\u0608\u0465 Q!\u0250t\ud8d0\udc61\u0255\u8f3d\u0739\u9f78vWV2&F24Cs##B&Vc666&FW&&r##[Y\\H^K][XZ[Z[XYKLML]OH\\\\[gmdiet\" src=\"https://iquitagain.com/wp-"
+description: "[caption id=\"attachment_2152\" align=\"alignleft\" width=\"106\" caption=\"By Ted Haggard\"] [/caption] I know this book isn't on the current 'best selling' list, but "
 pubDate: "2009-03-03"
 author: "Dale Sackrider"
 tags: ["Book Reviews"]
 draft: false
 ---
 
-[caption id="attachment_2152" align="alignleft" width="10؈ѥ	Q!ɐt񄁡ɕ輽ܹ齸vWV2&F24Cs##B&Vc666&FW&&r##[Y\H^K][XZ[Z[XYKLML]OH\\[gmdiet" src="https://iquitagain.com/wp-content/uploads/200̽ͅд􉩕ͅЈݥѢs#b"VvC#S"6FРФrF2&	\ۉۈH\[	ؙ\[[\]]\]gn to me and my budget is tight so instead of picking up tеѡɕ̀Ё	Ј$ѼɕvB6BfbFR6Vb%FRW'W6VFWB"'FVBvv&CH[YHYY\]XYHH]܈Z[[['inappropriate relationship while pastoring a very large cɍ
-	Ё݅́ͅЁѡɽ܁ѡ䁽rvFFR&FvFW""6&6VBFR&vFI[Z\KBϏ[[OH܎NLȏH[[></h3>
-The concept from the book is a good one: On the Jͅаԁݕٕ呅
-%ԁɔЁȂv&VrW"vVvBvf"FBvVVFVR6VBv]]\[H[Y[H\Hݙ\]^H\[YH'Fat Day and you eat only fruits, nuts, vegetables, and sḛɥ݅ѕȰݽɬЁȁȻ
-QwBRFBFRB6RFRvVvB6vǒУƃ37ۈ[OH܎NLȏHXO[σB'is slowly?  One pound a week.  That's a difficult idea ѼЁѕȁ݅эȁٽɥєѕхЁѡr$&vvW7B6W""G&#B'26vRvVV*FW7FRIH[][ۘ[\HH]H\[]\[ۜۙH['a week is an extremely fast pace.  Think about it - you Ё䁑ЁЁȁ́ѡ́啅쁥аvR&R'2fW'vVvBƖRRR&RƖVǒvYLHYX\܈H\LYX\˃BB^HYH\gscouraged at the idea that I would set a one pound a week͔͡ݽձٔȁѼЁѠɔv6ǒ*FwB&RW"7F'FVBF2&rvFFYYXHو[HYZ]Hۙ\YH[g 50 lbs this year - I am going to be very happy.  I'm acՅ䁍ͥɥݕɥѡѼչ́啅Ⱥ|*7W&RBvFRRffR"6V'2FG&FRvV]]YHLYX\]]ۈ[Z[]^g ideal weight at 36 doesn't sound bad at all.
-<h3><span 屔􉍽而QAɽ4)1Н́wF'BvFFRRFRW'W6VFWB*6VG27&GVY]]XH\Y\H\ewish tradition; no kosher diet information.  So why the
-	͔ѡѡȁѡЁѕvW'W6V*B6VBfRW7B2vV&R6VB	HۈY]IH]Z]H\HH]\Yg, but it annoyed me greatly.
+[caption id="attachment_2152" align="alignleft" width="106" caption="By Ted Haggard"]<a href="http://www.amazon.com/exec/obidos/ASIN/1400072204/ref=nosim/sackriderorg-20"><img class="size-thumbnail wp-image-2152" title="jerusalemdiet" src="https://iquitagain.com/wp-content/uploads/2009/03/jerusalemdiet-106x150.jpg" alt="jerusalemdiet" width="106" height="150" /></a>[/caption]
 
-In addition to the name, ѡЁݼѕ́5ȁ!ɐ́ѡЁ́rVF6&6w&VBVF"fFW72G&rB9[[وH^^Z[[]XHݙ\]gw and Skittles.  Actually, almost all of the first chaptȁ݅́Ё܁Սٕ́ѡɽ́vG2Br7G&sVF2V7G&sFWBR2ۙϐSQۙϝX][H
-\ۙ\H\]'or below his target weight for the week).  I almost put ѡݸѕ䁉͔܁Սѥٖw7FVBFRF6bFƶr&WBFRFWB2FVvWfW)H^H\HX\و[˃BB][X]Hget itself; Fruits, Nuts, Vegetables, and Seeds.  The oneȁݽɬЁ́ɕЁѡ݅ѕȁѽЁѡɔɔv'VW2&VBrV6RVBW7BvBG2bfI[H[X]IHHYXpH[X\[H]]ay 3k, 4k, or even 5k calories in fruits and nuts in a si
-9́ɔɥ4(4)%ѥwFFRRBFRWF"w2&BVFr&G2vRfRIH]]܈[\[YY\\ۉH܋H\o fitness training, and despite his best efforts to make ѡɕ́́ݡЁ́Ѽ䰁ЁrVfW7BRv276fR#2'2fW"2FVvVvBH[H[][\ZY\[[]' that most of us have a great deal more to loose than 20l̸4(4)=ͥєѡ́́ѕȁѡЀѼЁЂv6VǒvfVg&w&6Rr*&VƖWfRvRfR77VW9ݙ\YH[\]\[Hۉ\X[\H^X' more from a man just because he is a preacher.  I underхѡЁٔݔ͡ձɕw2FvvW"7FF&Br*vw&VRB2Fff7VIXY[[\H\\YX]YXZ[YX[n off your life knowing the author never broke his own adѥѼ͕Յ͍Սл
-$͡ѡɽ՝ѡwFW"vr֖7FW"2FVBF&V6BBF]H]H^H]HXH[Z[\Y\\\	ܙY['ar folk'.
-<h3><span style="color: #993300;">The Pros</sp4)Q́ٔͽ̀а$vVǒ&VƖWfRFBvR6VB66FW"FR6RbY[HYZ
-܈][\KۙϏ[OܘYX[Zgght loss is sustained weight loss</em></strong>.  You cá͔́ԁЁ$ЁwRWBCR'2FR3F2FBfrРФvv&B[XYHۘ\وHXܙ]Y]HݙH'e idea.  This  diet allows you to diet without telling 役
-eԁЁݡѕٕȁԁ݅Ё́ԁɔЁr&VrF&vWBBg'VG2WG2fVvWF&W2B6VVG2^\[H\[[X]]H]Y]]H[Hgver been on where you didn't have to make an announcementѼȁɥ̰䰁ݽɭ
-	ɔԁw7vW"FBVW7F66FW"rFW2R7vW&VIH]ܚ\X]\H܈[]H[ there, they don't have [pick your diet food]".  Most evԁЁѼЁ́͠ѡЁ́ѡw2FWG27&FW&vVR&RfBF'WBbR6ۉ[Y][ۈHY[H܈Yܙ\[H[Yould expose your diet to your lunch buddies - then order ͽѡ9=Pѡл
-QЁѡ)ͅvWB2F6vRFRF&V7FbW"ƖfRw&GVǒ9Y[H[\X][H\\ۈH]^H[[Hhouldn't have, its OK as long as you continue down the paѠȁ䁅Ёѥ4(4)!ɐv2F2'6Rg&VR"FWB*fRfVBFR6Rb	^Z[[HHܙ\YH[Y]^H]ܚ]H\\'join, but I never thought about the shame I expose othersѽ͔䁑л
-Qᅵٕ́ѡv2vrFVBBg&VG2W6RFB2&RfW'vYY[[H\H[Y\[HX]HXY]gy already had two pieces of because carbs are bad and youɔ她Ѽ͔ݕл
-$ٕȁͥɕ܁䁒vWB66W26VBRFW'2fVV*F6Rv7W&RI\[YX[\]H]][IHYH]HH'new vantage point.
-<h3><span style="color: #993300;">My Aͥѥ4)Ёѡ
-]ѡɔw&RfWrvB66WG2W&RfW&FBBVFR	؛[ۉۜY\H]]܈HHXXX]\ expert on the material.  Like the funny preview to a b-٥ѡЁ́ɔɥЁɔѡ́w7B*bR&RvrF'WFR&6Ɩ6FR&[XYH[\[^H]H[X^ۋX^XHH[ make a buck or two.
+I know this book isn't on the current 'best selling' list, but it was given to me and my budget is tight so instead of picking up the hot-off-the-press "Flat Belly Diet" - I decided to read cold-off-the-shelf "The Jerusalem Diet" by Ted Haggard; the same Ted Haggard that made the news for being in an inappropriate relationship while pastoring a very large church.  But momma always said, "Don't throw the baby out with the bath water" - so I approached the book with optimism.
+<h3><span style="color: #993300;">The Point</span></h3>
+The concept from the book is a good one: On the Jerusalem Diet, you weigh in everyday.  If you are at or below your weight goal for that week, then you can eat whatever you want.  If you are over, that day is called a Fat Day and you eat only fruits, nuts, vegetables, and seeds, drink only water, and work out for an hour.  Take it one day at a time and lose the weight slowly.
+<h3><span style="color: #993300;">The Pace</span></h3>
+How slow is slowly?  One pound a week.  That's a difficult idea to accept after watching your favorite contestant on the "Biggest Loser" drop 24 lbs in a single week!  Despite the sensationalism we get from our televisions, one pound a week is an extremely fast pace.  Think about it - you most likely didn't put on 52 lbs this year; in fact, if you are a 100 lbs overweight like me, you more likely gained 10 lbs a year for the last 10 years.
 
-* This is my first book review. $ٔͥɕɕ٥ݥѡ͔еѡɕ́̂wR6VRBv'B'WBvB7W&RbVRvVBfB	]ܝXY[˰Y[HZY\]Y][['see more - please leave me a comment and let me know.
+My wife was discouraged at the idea that I would set a one pound a week goal because she would love for me to get health more quickly.  I don't blame her - I started this blog with the idea of 3 pounds a week, but to be honest if I can loose 50 lbs this year - I am going to be very happy.  I'm actually considering lowering the pace to 20 pounds a year.  Sure it will take me five or six years to drop the weight, but it took me 10 years to put it on and being at my ideal weight at 36 doesn't sound bad at all.
+<h3><span style="color: #993300;">The Problems</span></h3>
+Let's start with the name, The Jerusalem Diet.  Sounds spiritual, right?  Its not.  Its not Bible based; there is no Jewish tradition; no kosher diet information.  So why the name?  Because the author made up the diet in a hotel room in Jerusalem.  It could have just as well be called the Boston Diet.  I'm not quite sure why that bothers me, but it annoyed me greatly.
+
+In addition to the name, the first two chapters Mr Haggard explains that he has no medical background, no health or fitness training, and spends most of the text explaining how much he loves Mt Dew and Skittles.  Actually, almost all of the first chapter was about how much he loves all the wrong kinds of foods AND how on <strong><em>this </em></strong>diet he is <strong>ALLOWED </strong>to eat them (as long as he is at or below his target weight for the week).  I almost put the book down completely because of how much time he invested in the task of talking about the diet as though every day is a feast of junk foods.
+
+Lets talk about the diet itself; Fruits, Nuts, Vegetables, and Seeds.  The one hour work out is great and the water too, but there are no rules around how much you eat, just what kinds of foods you can eat.  I'm a food addict!  I can easily put away 3k, 4k, or even 5k calories in fruits and nuts in a single day.  Nuts are a high calorie food.
+
+In addition to the name and the author's bad eating habits, we have the author himself.  Ted Haggard isn't a doctor, he has no fitness training, and despite his best efforts to make the reads feel he knows what its like to be heavy, at his heaviest, he was a massive 23 lbs over his ideal weight.  I am not belittling his weight loss, just pointing out that most of us have a great deal more to loose than 20lbs.
+
+On a sidenote, this is a minister that (to put it nicely) 'fell from grace'.  I believe we all have issues to overcome in our lives and I don't particularly expect more from a man just because he is a preacher.  I understand that many people do believe we should hold preachers to a 'higher standard'.  I will agree, it is difficult to read an entire chapter dedicated to breaking addiction off your life knowing the author never broke his own addiction to sexual misconduct.  I pushed through the chapter knowing a minister is anointed to preach it, not to live it - they have to face similar struggles as us 'regular folk'.
+<h3><span style="color: #993300;">The Pros</span></h3>
+The book does have some highlights - first, I really believe that we should all consider the pace of one pound a week (or even slower).  <strong><em>Gradual weight loss is sustained weight loss</em></strong>.  You can go lose 30 lbs in 30 days if you like - but I'll bet you put on 45 lbs in the 30 days that follow.
+
+Haggard also introduced the concept of a "secret diet".  I love the idea.  This  diet allows you to diet without telling anyone.  You eat whatever you want on days you are at or below target, and fruits, nuts, vegetables, and seeds on days you aren't.  Think about it - what diet have you ever been on where you didn't have to make an announcement to your friends, family, and co-workers?  Before you answer that question - consider how many times you answered a co-worker about where to go for lunch with "I can't go there, they don't have [pick your diet food]".  Most every place you can go out to eat has a dish that meets this diets criteria when you are on a Fat Day, but if you can't find something on the menu or if ordering the salad would expose your diet to your lunch buddies - then order something NOT on the diet.  The point of the Jerusalem Diet is to change the direction of your life gradually - so if you end up eating the burger on a fat day when you shouldn't have, its OK as long as you continue down the path of changing your life one day at a time.
+
+Haggard calls this a "shame free" diet.  I have felt the shame of explaining why I ordered the salad at my favorite burger join, but I never thought about the shame I expose others too because of my diet.  The example he gives in the book is going to eat at a friends house that is more overweight than you are and refusing the eat the bread that they already had two pieces of because carbs are bad and you are trying to lose weight.  I never considered how my diet choices could make others feel.  To some, I'm sure this sounds ridiculous but I get it and I'm glad I have a new vantage point.
+<h3><span style="color: #993300;">My Position</span></h3>
+Don't buy the book.  While there are a few good concepts here, overall I did not enjoy the book and don't consider the author to be a subject matter expert on the material.  Like the funny preview to a b-flick movie, all the best parts are right here in this post...  If you are going to buy the book - click the book image in this post and buy it from Amazon... Maybe I can make a buck or two.
+
+* This is my first book review.  I've considered reviewing those hot-off-the-press books you see at Walmart but I'm not sure if people would find it worth reading.  If you liked this review and want to see more - please leave me a comment and let me know.

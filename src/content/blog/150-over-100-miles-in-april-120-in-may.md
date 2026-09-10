@@ -1,14 +1,13 @@
 ---
 title: "#150: Over 100 miles in April - 120 in May?"
-description: "Today, with only 2 days left in this month, I have cro\u0355\u0701\u0255\u0250\u0301\u0304$\u0401\u047erfRBF'&r7BFbFRF&V6W6R]HH\\[\u0708\\\u06c8[^HH]]\\^H\\\\gd to be the 20 mile training day. I still don't know wh\u047c"
+description: "Today, with only 2 days left in this month, I have crossed a new record - 100 miles in 30 days! I don't plan to move at all tomorrow (last day of the month) bec"
 pubDate: "2011-04-29"
 author: "Dale Sackrider"
 tags: ["A year on purpose"]
 draft: false
 ---
 
-<p>Today, with only 2 days left in this month, I have cro͕܁ɕɐ́̄$ЁѾrfRBF'&r7BFbFRF&V6W6R]HH\[܈\ۈ[^HH]]\^H\\gd to be the 20 mile training day.  I still don't know whѼոѡ
-$Ё݅ЁѼͭЁѦw&VǒBBFW6wBƖRv&R&RF'VBFR	ٛ[]\^HX]\HH[[^H\[\'s day and Stephanie has made it clear that she wants to ѼM݅丸(1Ёݕ$ݕvB#c'2*F2vVV2&VVB"֗72wfR&Y[\Y\[\\^H[܈H[d of next month is to make the high end 265 and the low eѡ܀
-$ЁѡԁѼչ́vF2Fw&W76fR*6FwBFG2vrF	ؙHX\KH]HY][[܈YH^[ۧth now assuming I do the 20 mile run next week sometime -$ٔݼٕȀչ͍́ձ
-	UP$䁡vRR&6R66VGVVB&vBrBFB2FRv'&"FIZH][H\HوL]]][g harder and harder to find races as it gets hotter and hѕȸ(	Q\ȁ役ѡЁյ́ѡ́rBF2Gv#֖R'V3vBw2FB&WByH[H[H[^Hܘ[HH]HۛHgarathon training program that I have found that has you rոѡȁѡ̻
-ݕ́$rr֖R'VBF2vVVVB27W6VBF&R#IYHYZZ[\[YHYZY\]Z[\.  Then, a full month after the 26 mile run - I'm runninѡՅɅѡ
+<p>Today, with only 2 days left in this month, I have crossed a new record - 100 miles in 30 days! I don't plan to move at all tomorrow (last day of the month) because I have the Warrior Dash on Sunday - but Saturday was supposed to be the 20 mile training day.  I still don't know when to run the 20 mile day.  I don't want to skip it entirely and it doesn't look like I'll be able to run it the following Saturday because the following Sunday is Mother's day and Stephanie has made it clear that she wants to go to San Diego. Anyway...</p>
+<p>Last weekend I weighed in at 269 lbs.  This week has been hit or miss - I've been as high as 273 and as low as 266.  My goal for the end of next month is to make the high end 265 and the low end anything below 260.  I don't think 5 to 10 pounds a month is too agressive.  I also don't think its going to be easy.</p>
+<p>I do have something going for me next month now assuming I do the 20 mile run next week sometime - I have two over 20 mile runs scheduled.  BUT I only have one race scheduled right now and that is the Warrior Dash.  I'd like to get in a couple of 10k's but its getting harder and harder to find races as it gets hotter and hotter.</p>
+<p>BTW - for anyone that stumbles on this post and thinks - two 20+ mile runs? What's that about!?!? I'm loosely following the Galloway program - its the only marathon training program that I have found that has you run further than 20 miles.  A couple of weeks ago I had a 17 mile run and this weekend is supposed to be 20 - in three weeks, 23 miles, and three weeks after that 26 miles.  Then, a full month after the 26 mile run - I'm running the actual marathon.</p>

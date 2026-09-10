@@ -1,10 +1,10 @@
 ---
 title: "Video is coming soon..."
-description: "I have been filming daily video journal entries concernin\u4075\u0401\u0255\u0401\u0755\u0471\u0301\u0400$\u047c\u0361\u0254wFVW&RvWfW\"v7Frf\"V7v ]]][][XZ[Z[H[]XH[nel. ANY SUGGESTIONS?"
+description: "I have been filming daily video journal entries concerning my most recent weightloss effort - and I plan to share them all here, however I'm still looking for a"
 pubDate: "2010-06-09"
 author: "Dale Sackrider"
 tags: ["Weight Loss Journal"]
 draft: false
 ---
 
-I have been filming daily video journal entries concernin䁵ЁɕЁݕѱ́Ѐ$Ѽ͡ɔwFVW&RvWfW"v7Frf"V7v	]]][][XZ[Z[H[]XH[nel.  ANY SUGGESTIONS?
+I have been filming daily video journal entries concerning my most recent weightloss effort - and I plan to share them all here, however I'm still looking for an easy way to do that without also having to maintain a youtube channel.  ANY SUGGESTIONS?

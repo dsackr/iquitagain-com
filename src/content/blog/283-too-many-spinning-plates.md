@@ -1,21 +1,27 @@
 ---
 title: "#283: Too many spinning plates"
-description: "[caption id=\"attachment_2761\" align=\"alignleft\" width=\"30\u0465Q5MA\u0455\u0309t4(\ud957\udd5c\u0365\u9536vgVw\u0596vR#sc\"FFS'7rFW2\"7&3&GG3\\]Z]YZ[KX\u06dd[\\Y\u030cLL[[\\]\\.jpg\" alt=\"\" width=\"300\" height=\"160\" />["
+description: "[caption id=\"attachment_2761\" align=\"alignleft\" width=\"300\" caption=\"Too Many Spinning Plates\"] [/caption] How do you balance family, faith, and field - I tend "
 pubDate: "2010-12-17"
 author: "Dale Sackrider"
 tags: ["A year on purpose"]
 draft: false
 ---
 
-[caption id="attachment_2761" align="alignleft" width="30ѥQ5MAѕ̉t4(񥵜ͥ锶vgVw֖vR#sc"FFS'7rFW2"7&3&GG3\]Z]YZ[KX۝[\Y̌LL[[\]\.jpg" alt="" width="300" height="160" />[/caption]
+[caption id="attachment_2761" align="alignleft" width="300" caption="Too Many Spinning Plates"]
+<img class="size-full wp-image-2761" title="spinning plates" src="https://iquitagain.com/wp-content/uploads/2010/12/spinning-plates.jpg" alt="" width="300" height="160" />[/caption]
 
-<em!܁ԁ䰁Ѡ$ѕѼvW6VBRFFRW&bFRFW'2FVǒv&2	ؙY[ܙX]H0HHYH]\KKXkr/status/2585018049">@dsackr July 11, 2009</a></em>
+<em>How do you balance family, faith, and field - I tend to excel at one to the peril of the others... Lately, works been great... :o)  - <a href="http://twitter.com/#!/dsackr/status/2585018049">@dsackr July 11, 2009</a></em>
 
-ÍѕɕѥѡЁ$չɅЁ䁙ɽԼr#vFF2FFSFrV6RW7BFRFFR*Y\HYX[H[[]\[ۈ]H[ge I thought to write it to even begin.
+Its interesting that I found a draft blog entry from 05/14/2009, with this title; nothing else, just the title.  I guess I had too many spinning plates going on at the time I thought to write it to even begin.
 
-I have a histor䁽ѥѽՍєոѕ
-$ͥvf"&Rv&Bv&F6vWBFRw&VRI\X]]Y\]Hۉ]H[YH܋HܙX]H'blogs like IQA which I end up neglecting for months at a ѥ5䁽ݡ$хѕѡ́䰁$v&Ɨ6VB&Vc&GG3VFv6#R#B7G3OH[^H^H\Hٰ[X\\[]X[]p\eing kind), all while working on my degree, and attemptinѼх䁱4(4)ЁѡvbF2V"VBfF&vF6V֒&fF&FY[HpHYH˜[ܚX\][ٛ[KȏPeoria Patriots</a>, which I enjoyed greatly, but requirݼ́ݕɅѥȁЁٔѡ́vRV"B6GW&FvW2f"F&VRbF6RF2*\[[[^H؈\Z[L' hours a week, as well as a 110 mile round trip commute tݽɬٕ呅䰁ݕͥєͥͥ́݅̀ՍvW76gVrFBB6WfW&6ƖVG2vF&vRFR	ۜ[Z[HڙXˈ0H\ݙ\[YYBB\ܛH٧ gluttony has its toll and for this to be a year on purp͔$ٔѼɸѼͅ䀉
-$ɕ䁵ѡѾwVv66RFBfF&F2W6֖rV"*FYܙH\HۛH\\Y]Y[YH[^H\YX\'degree and I plan to complete those before the end of thí啅ȁͼ͍Ȁĸ
-$ٔɅvFג&72Fv&RFvVVg&Rv6&ViYۙHوHLLZ[H\H^HYHXXYZ˃BBn the flip side, I haven't been going to church lately, a$ЁݥѠѡи
-$ѡѡЁ݅́ɔ͔vbFR'W&WBg&G'rFFWfW'Frf"6r	[Y\\HYX\ۈ\K^Z[YHH\h is not something I want for myself or my family, so theɔ́ѥ٥$ٔѼЁє4(4)rvB&WB'Vs*2F2W7BFW"FR7[[[\[Yܘ\ۈH܈[X[H'pieces?  Time will tell for certain, but I have a good fЁѡ́
-$Ʌщȁչv6W6R'Vr26WFr6FvFגf֖ǒ*F[YHܚۈZYX[H][[amily time all at once.  I've seen huge improvements oveȁѡЁ܁ݕ́$ɅѡЁݥ̂wFРФFRfRF7rFW3*&R)LH[HHYX\HXZH\][ۜ['ings.  What do you think?
+I have a history of putting too much on my plate (pun intended).  I sign on for more work at work than I can get done, I agree to church activities that I don't have time for, I create blogs like IQA which I end up neglecting for months at a time (in May of 2009 when I started this entry, I only published <a href="https://iquitagain.com/2009/05">4 posts</a> - and to say they were of embarrassing quality is being kind), all while working on my degree, and attempting to maintain a family life balance.
+
+At the beginning of this year, I played football with semi-pro football team the <a href="http://www.peoriapatriotsfootball.com/">Peoria Patriots</a>, which I enjoyed greatly, but required two nights a week practice for almost five months of the year and Saturday games for three of those months.  I was also going to school, and my job was taking 50 to 60 hours a week, as well as a 110 mile round trip commute to work everyday, and my website design business was 'successful' - in that I had several clients with large (time consuming) projects.  I was overwhelmed.
+
+This form of gluttony has its toll and for this to be a year on purpose, I have to learn to say "no".  I already made the tough choice to not play football this upcoming year.  There are only two classes left between me and my four year degree and I plan to complete those before the end of this year so no school planned for 2011.  I have arranged with my boss to work one day a week from home, which removed one of the 110 mile trips from my life each week.
+
+On the flip side, I haven't been going to church lately, and I'm not ok with that.  I think that was more because of the burn out from trying to do everything for so long and if this is a year on purpose, staying home from church is not something I want for myself or my family, so there is one activity I have to put back on my plate.
+
+And what about running?  Is this just another plate spinning round and round destined to crash on the floor in many pieces?  Time will tell for certain, but I have a good feeling about this one.  I traded football for running because running is something I can do with my family.  That allows me to work on weight loss, healthy living, and family time all at once.  I've seen huge improvements over the last few weeks and I'm encouraged that my wife has too...
+
+Do you have too many spinning plates?  Maybe 2011 should be a year we make resolutions to stop doing things.  What do you think?

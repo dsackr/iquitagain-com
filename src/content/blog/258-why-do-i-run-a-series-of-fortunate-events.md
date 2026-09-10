@@ -1,30 +1,34 @@
 ---
 title: "#258: Why Do I Run? ...A Series of Fortunate Events"
-description: "My brother and I were talking today and he asked me - wha\u0401\u0400\ud8d0\udc61\u0255\u8f3d\u0565\u0445\u0755\u0471\u0369\u0279rF2FR#F2FS6\u01966VBf\"RF7F'B'V0^H[\\\\H\\Y\\\u0648\u071d[]H][\u02c80 be confused with A Series of UNfortunate Events"
+description: "My brother and I were talking today and he asked me - what about this time clicked for you to start running? My answer was a series of fortunate events. Not to "
 pubDate: "2011-01-11"
 author: "Dale Sackrider"
 tags: ["A year on purpose"]
 draft: false
 ---
 
-My brother and I were talking today and he asked me - whaЁЀ񄁡ɕ輽եхݕѱͩɹrF2FR#F2FS6Ɩ6VBf"RF7F'B'V0^H[\\H\Y\وܝ[]H][ˈ0 be confused with A Series of UNfortunate Events (<a href輽եхݕѱͩɹе͕ȶv&rVFFגvbb#v6v2FVFVBvX[\[OO]]\Y[][]
-HH'ere were several events that all took place over the last啅ȁѡЁЁѼɔ
-Qٕ́$ݥЁvW&R&R66RF6&v6*&FW"2&VV&W"FVK]\Z[H[[H\X[\ܙ\و[\ܝ[e - in fact I would say each event has very little import䁥͕䁉́ͥЁ́ЁwFRvRУƃ3v6֗Fw27VV63Х6WfW&V'2HX\[Z][[X\[HYX^H\Hord (paraphrased due to my terrible memory):
-<blockquote$݅ЁѼͅͽѡѡЁ$݅ЁԁѼɕȁȂwFR&W7BbW"ƗfW2FRWFƖfR2'VrB	ܙXY[ˈ0H[[0X]\H[[H[H\H\ a little person that tells you to stop - tells you that ԁЁѥՔѕ́ԁѡЁȁ̀ѕv2RFBW"Vw2W'BFV2RFVB*bY[YX]]\ۈ[H[H\H[[H[Hۉ' quit when life gets hard...</blockquote>
-He goes on to ͅѡЁٕɽݔٕٔȁ́ɕvG&VV6fVB'6VRFBw&FRFvFR7vW"H[XY[\HۛH^H[H[\.  I heard the fresh prince of bel air say these words ýѕѼɕȁѡȁѡɕЁrƖfRBF6Rv&G2fR&GFVB&VBגVBWfW)[K0H^H\Z[[]X]]YXXgntly and he found a version of it on <a href="http://www.Չ݅э-5		<(Չȁ
-%rRfVwB6VVB6V6BWBУƃ3fVBvVYܝ\Y]HY]]H[Y[HH-worker</h3>
-In 2007 I rode my bicycle somewhere betweeǹՑԁ危ɥvg&vVFRFFV&EfW"F2*&FRג	ؚZHܚN
-Z[\XX^KYH^\HYZ for months building up to the D-Tour 2007 and for a few ѡ́ѕȸ
-]$啐ɥЀЁѽvBbFRvg&גf֖ǒBFW7FR&fFr	[X^[[[[وX[[Y]\HX\\]Hgilure as a weight loss exercise.  I lost between 5 and 1ԁ́ɥѡЁѥݥѠ䁱ݕЁݕЁЂs#V'2РФFW"FBV"v2FƶrFWrFVYX\X]^HX[Yܝ[Z[YZYHg said this words:
-<blockquote><em>Riding your bike is noѕȁѡͥѥЁ݅эQX$٥wFBRfRF&RW"fVWBF6RvVvBV&][OBH\]]Y][]\[HXguse I do not agree with the comment and I found it to be ͍Ʌ$ѡѡ݅́Ё她Ѽɕєvל*g'W7G&F*vF76Ɩr2vVvB72Vff'B0][YHۉYܙYH]][Y[H]\een wedged into my mind ever since.  Its amazing how powəհݽɑ́4(%Ʌ鵤ѡɅѡչv&W#3ФbRWfW"VWB&֒BvWBF7VB&Y[HZ[]\]\[H[[[\[[Hۧversation regarding marathon running.  No - she isn't pu͡䁅ЁЁ́ٔ͡Ёѡȁݽəհw7V7G2FW"W'6ƗG'WB&F'Vrv6H\[[H[Z]\H[\Y[ۙH܈]g least be impressed with her for having run so many.  Trѡձ䰁͡͸Ёɽ́́՝䁽
-ѥ
-z&Vv&Fr'VrbFrVFRFR6FR*	[]X]\Hو]ZXHH\[Y]H[Hgn run a marathon even if you aren't sure you could.
-<h3>QQɭQɽЁ٥хѥɽ䁉ɽѡȵ4)v&WBGvF2&Vf&RF6vfrג'&FW"֖r6YYHYH[H[\\Y[[[HZXH]'him over Thanksgiving day.  I had never run 3.1 miles beɔЁ$݅́ȁ$܁v&VV'Vr6FVvB'vC"*6Rw&VVBۙ]HY[]H^H\XHHYground until I found active.com, where I immediately signeȁѡ5ɥMхլݡɹЁѼv&RF*FR&6RFVf&VB2&Vǒri܈YHH[^\][HXHZ[\[H]YZ\'a motivator in a big way.
-<h3>My Wife was on board</h3>)5ݥ́饹ѹȁ䁱͡r7W'FVBR6fVFBV6fVFv2*	H\]\]^Hܘ^[\ݙ\HYX\[Y[ doing things that were very inconvenient such as beingЁѕȁѡQȀ܁危ѽȰ݅эvrFRG2'W'6Vbf"rF2vR6V֗&Y[\\[YX[]]Y]Y]ˈ0he hasn't always done so with a smile but she has always ѡɔȁ4(4)	Ёݡȁɽѡȁͭ$wvFVBF'VVvF6Rv6wBW7B7W'FfSH\ۈ\0H\Y[[]Y]Yg.  Walking turned into jogging some, then walking some. 
-)]ѕم́ɹѼլ̸
-լvw2GW&VBFR֖R'V2*F22FRf'7BvVvBX]]H]^HYH\Y[X][H\X\][ in with me.  This small difference turns my workout tiḿѼѥ̸
-%ѕѥ݅䁙ɾvFRf֖ǒ&R"BfF&&7F6Rv7VI[[YH]^HYH[Y[[˃Bϒ[\][ۋ' Motivation, Belief, Opportunity - ingredients for succe4)Ёݽɬݔѕɕɴѥ٥䁍w7F'FV*vR&WfWrWfW'FrFBVVBFFWFW)Z[HH]\][ۈ][]XY\H\[
-'desired and undesired).  We walk away from a postmortem ݥѠ͕́ɹ
-$Ёɔѡɔ́ѡvW&RR6VB&WVBB6W'FwfRVgBWBX[HX[HY[Z[H[YۚYX[][]Z[gy current situation, but here is a recap:
+My brother and I were talking today and he asked me - what about <a href="https://iquitagain.com/weightlossjournal/this-time">this time</a> clicked for you to start running?  My answer was a series of fortunate events.  Not to be confused with A Series of UNfortunate Events (<a href="https://iquitagain.com/weightlossjournal/biggest-loser-blog-edition-my-wi-11-of-16">which was an idea I toyed with back in April 09</a> but never did anything with) - there were several events that all took place over the last year that got me to here.  The events I will call out here are close to chronological order (as I remember them), but certainly not in any particular order of importance - in fact I would say each event has very little importance by itself and only becomes significant as a part of the whole.
+<h3>Will Smith's Speech</h3>
+Several years ago I heard Will Smith in an acceptance speech say these word (paraphrased due to my terrible memory):
+<blockquote>I want to say something that I want you to remember for the rest of your lives... The key to life is running and reading.  Why running?  Because when you run - there is a little person that tells you to stop - tells you that you can't continue - tells you that your knee hurts - tells you that your lungs hurt - tells you to quit.  If you can defeat that person while you are running - you won't quit when life gets hard...</blockquote>
+He goes on to say that every problem we have ever had in life has already been solved by someone that wrote down the answer in a book - and reading is the only way to find those answers.  I heard the fresh prince of bel air say these words years ago - telling me to remember them for the rest of my life and those words have rattled around in my head ever since.  I told my brother-in-law about that speech recently and he found a version of it on <a href="http://www.youtube.com/watch?v=KEMEBBwO6J8">youtube</a> for me.  If you haven't seen it on - check it out.
+<h3>A failed weight loss effort coupled with a negative comment from a co-worker</h3>
+In 2007 I rode my bicycle somewhere between 2500 and 3000 miles - including a 735 mile cycling trip from Glendale AZ to Del Rio TX over 11 days.  I rode my bike to work 18+ miles each way, two to three days a week for months building up to the D-Tour 2007 and for a few months after.  While I enjoyed riding a lot - it took a lot of time away from my family and despite providing an amazing amount of health benefits, was a near complete failure as a weight loss exercise.  I lost between 5 and 15 lbs during that time with my lowest weight being about 285lbs.
 
-The key to ĺչԁٔѼȁЁѼ͔ݕvvBR6'V&F6R'VvFRv[][KBBY\H\H]\\H][' be repeated - I would say you need equal parts inspiratiѥمѥչ䀴	UPɔԂw&6RVFVFVBF&WVBג'&W7VG2"rF2]H[ܙp\\][۰[\[ˋXX[ۈ'Day 0, Sept 26th 2011... By then, we'll know...
+Later that year I was talking to a new team member about my cycling efforts and failed weight loss - he said this words:
+<blockquote><em>Riding your bike is no better than sitting at home watching TV - I'm convinced that you have to be on your feet to lose weight.</em></blockquote>
+I hesitated to even put this in the post, because I do not agree with the comment and I found it to be discouraging (I think the guy was just trying to relate to my frustration with cycling as a weight loss effort).  Even though I don't agree with that comment - it has been wedged into my mind ever since.  Its amazing how powerful words can be.
+<h3>Irazmi the marathon running co-worker</h3>
+If you ever meet Irazmi and get to spend more than 5 minutes with her, you will find yourself in a conversation regarding marathon running.  No - she isn't pushy about it and she does have a lot of other wonderful aspects to her personality - but marathon running will come up and you will either be inspired to run one or at the least be impressed with her for having run so many.  Truthfully, she doesn't come across as haughty or elitist regarding running - if anything quite the opposite.  I think its because of how quickly she is to believe you can run a marathon even if you aren't sure you could.
+<h3>The Turkey Trot invitation from my brother-in-law</h3>
+About two months before Thanksgiving my brother-in-law asked me if I would be interested in running a 5k race with him over Thanksgiving day.  I had never run 3.1 miles before but I'm always up for a challenge and I knew he had been running so I thought "why not?"  Once I agreed, I knew I didn't want that to be my first race so I googled around until I found active.com, where I immediately signed up for the Maricopa Stagecoach 5k (which turned out to be a 4k+).  The race day environment is really amazing for me - Always having a race coming up in a few weeks is a motivator in a big way.
+<h3>My Wife was on board</h3>
+My wife has been an amazing partner in my life - she has supported me in conventional and unconventional ways.  She has put up with my craziness over the years including doing things that were very inconvenient such as being my support team for the D-Tour 2007 bicycle tour, watching the kids by herself for long days while I play semipro-football, preparing meals to fit new diet fads, etc.  She hasn't always done so with a smile but she has always been there for me.
+
+But when her brother asked me if I wanted to run a 5k with him - she wasn't just supportive; she was on board.  She started walking at night with me.  Walking turned into jogging some, then walking some.  Jogging / Walking intervals turned into 5k jogs.  5k jogs turned into 5 mile runs.  This is the first weight loss activity that my wife has been actively participating in with me.  This small difference turns my workout times into family times.  Instead of spending time away from the family on a bike or at football practice, I'm spending time with my wife and kids running.
+<h3>Inspiration, Motivation, Belief, Opportunity - ingredients for success?</h3>
+At work, we often preform an activity called a postmortem.  We review everything that happened to determine the causation events that lead up to a result (both desired and undesired).  We walk away from a postmortem with "lessens learned".  I'm not sure there is anything here you could repeat and I am certain I've left out many many many seemingly insignificant events that build to my current situation, but here is a recap:
+
+The key to life is running... you have to be on your feet to lose weight... you can run a marathon... come run with me... I'll run with you...
+
+If there is a pattern here that could be repeated - I would say you need equal parts inspiration, motivation, belief, and opportunity - BUT before you race (pun intended) to repeat my "results", know this - I have more aspiration than results... Check back in on Day 0, Sept 26th 2011... By then, we'll know...

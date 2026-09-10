@@ -1,21 +1,47 @@
 ---
 title: "#276: Google Wants Me Lose Weight!!!"
-description: "Several weeks ago I got this email from The Chrome tea4(\ud8e7\udc7d\u057d\u04544(\u0445\u0251vFFs##\u0423F&G\u0423G#\u0423FC\u0423F&R&&FW##\"6V9X[H[Y[HBOBB[Y[g\"\" /> Greetings, A while back, you signed up to rec\u0654"
+description: "Several weeks ago I got this email from The Chrome team: Greetings, A while back, you signed up to receive news, updates, and launch information about Chrome an"
 pubDate: "2010-12-24"
 author: "Dale Sackrider"
 tags: ["A year on purpose"]
 draft: false
 ---
 
-Several weeks ago I got this email from  The Chrome tea4(񉱽սє4(хɑvFFs##УF&GУG#УFCУF&R&&FW##"6V9X[H[Y[HBOBB[Y[g"" />
+Several weeks ago I got this email from  The Chrome team:
+<blockquote>
+<table border="0" cellspacing="0" cellpadding="0">
+<tbody>
+<tr>
+<td>
+<table border="0" cellspacing="0" cellpadding="0">
+<tbody>
+<tr>
+<td><img alt="" />
 
 Greetings,
 
-A while back, you signed up to rec̰ٔѕ̰չɵѥ
-ɽ
-zL*6&\*2vRfRvBWw3*6&VFV&2&Y\K[[x&\H[YXHXZ]HۙHCBBYpotebooks are for people who live on the web and want a faѕȰͅȁɔ͕ɔɥݥѡЁѡvF6W2b&F'6WFW'2РХFǒFvWBW,*9YpXX\HݚYH[\TXZ[[Y\y clicking the link below no later than <strong>Friday, ȀЀA4AMPɽ4(4(ɽIwVW7B*6&\*FV&7G&sРФ6VW'2ХF\*6&pX[OBBOBXOBBBtbody>
+A while back, you signed up to receive news, updates, and launch information about Chrome and Chrome OS. We have good news: Chromenotebooks are here, and you’re eligible to receive one!
+
+Chrome notebooks are for people who live on the web and want a faster, safer and more secure experience without all the headaches of ordinary computers.
+
+To apply to get your Chrome notebook, please provide your US mailing address by clicking the link below no later than <strong>Friday, December 10, 2010 at 11:59 PM PST.</strong>
+
+<strong>Request a Chrome notebook</strong>
+
+Cheers,
+The Chrome team</td>
+</tr>
+</tbody>
+</table>
+</td>
+</tr>
+</tbody>
 </table>
 </blockquote>
-So - I clicked the link,ݕɕ܁Օѥ̰Ёѡ̀Ʌѕȁɖw76RFF2VW7F7G&sVvBvVBRR	H[\]YH[\\[OۙσB][OIHH'lb runner, training 4 a marathon, losing weight using tec䰁䁅ɽȁɅݽɭ̀쁄vr"F2FRW&W&6VFSФvB7W&RbגGyY][H[\
-HM\X\[Z]\\]Z\Yg Google) had anything to do with being one of the lucky pѼɕٔѡHɽ1ѽȁаwWBFFvFWBv&rvB'&BWr'6WFVHYH\HHHHO[Y\H[YۜY^K]'humbnail wp-image-2850" title="Google-Chrome-CR-48-Box" sɌ輽եхѕн̼ȽvvR6&R5"C&SSr"C""vGF#S"VyHMLσBB\\H\[HIݙHܙX]Y'since I powered this awesome device up.  This isn't a teͼ$ЁѼхЁѡɝɅv"FRbvr6ƖB7FFRG&fR"FRWG&VVǒr&\HYH
-ݙ\\܈\JK0IH[re you with details about how light weight it is or that Ё́ݥѠIݥɕ̀͜фɽYɥ齸v"GvV'2*vW7BvrF6vvRbY\H\[[HSSHCBBHۉH]Z][\gek... :o)
+So - I clicked the link, answered a few questions, and left this 140 character response to this question: <strong><em>What would make you a unique Pilot user?</em></strong>
+<blockquote>I'm a 300lb runner, training 4 a marathon, losing weight using technology, like my android phone 2 track workouts &amp; a blog 2 doc the journey</blockquote>
+I'm not sure if my tweet style answer (the 140 character limit was required by Google) had anything to do with being one of the lucky people to receive the CR-48 Google Chrome Laptop or not, but today without any warning, I got a brand new absolutely free laptop from Google!!!<img class="alignright size-thumbnail wp-image-2850" title="Google-Chrome-CR-48-Box" src="https://iquitagain.com/wp-content/uploads/2010/12/Google-Chrome-CR-48-Box-150x150.jpg" alt="" width="150" height="150" />
+
+This is the first blog entry I've created since I powered this awesome device up.  This isn't a tech blog - so I'm not going to detail out the 2gig of ram or the 16 gig solid state drive, or the extremely long battery life (over 8 hours for sure).  I'm not going to bore you with details about how light weight it is or that it comes with a FREE wireless 3g data plan from Verizon for two years!  No, I'm just going to say Google - if you are listening - THANK YOU!
+
+I won't be quiting this week... :o)

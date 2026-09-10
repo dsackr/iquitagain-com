@@ -1,21 +1,39 @@
 ---
 title: "My first PF Chang Rock-N-Roll 1/2 Marathon - Completed!"
-description: "[caption id=\"attachment_2938\" align=\"alignright\" width=\"3\u0608\u04655\u0400\u013c\u02015\u0245\u0461t\ud957\udd5c\u0365\u9535\u0571rw\u0596vR#3\"FFS&f&F&W7VG2\"7&3&GG3\\]Z]YZ[KX\u06dd[\\Y\u030cLKK[X\\]\u06cbgresults.jpg\" alt=\"\" width=\"356\" heigh"
+description: "[caption id=\"attachment_2938\" align=\"alignright\" width=\"356\" caption=\"My First 1/2 Marathon\"] [/caption] There it is! A big three hour, one minute, and thirty t"
 pubDate: "2011-01-16"
 author: "Dale Sackrider"
 tags: ["A year on purpose", "Goals", "Running"]
 draft: false
 ---
 
-[caption id="attachment_2938" align="alignright" width="3؈ѥ5Ѐļȁ5Ʌѡt񥵜ͥ锵ձrw֖vR#3"FFS&f&F&W7VG2"7&3&GG3\]Z]YZ[KX۝[\Y̌LKK[X\]ۋgresults.jpg" alt="" width="356" height="515" />[/caption]4(4)QɔЁ̄
-ѡɕȰєѡwGF&VR6V6BFR*גf'7B"&F2FR)YˈIp^]\Y0H]IH\H]Xو]gs from the race verse getting up at 5am...
+[caption id="attachment_2938" align="alignright" width="356" caption="My First 1/2 Marathon"]<img class="size-full wp-image-2938 " title="halfmarathon-results" src="https://iquitagain.com/wp-content/uploads/2011/01/halfmarathon-results.jpg" alt="" width="356" height="515" />[/caption]
+
+There it is!  A big three hour, one minute, and thirty three second time.  My first 1/2 Marathon is in the bag. I'm exhausted - but I'm not sure how much of that is from the race verse getting up at 5am...
 
 THE GOOD:
-հ4($$ɅļȁɅѡ𽱤4($$Ёݕ;vRWFƓРƓFR6W'6R27FǒfCƓРƓH]\][ۜ\H]\HZ[H[H[܈OB	<li>The course was clearly marked</li>
-	<li>There were ٕȀ嬁ѡЁɅ𽱤4($Aɭ݅́䀢vBV7BBc3Bv2ƓРƓFR6WGFRFFY\[[H\X\H[X\H]ۏOBgl>
-[caption id="attachment_2940" align="alignleft" widthѥ$фt񥵜ͥ锵ѡյrw֖vR#C"FFS&ƖW2"7&3&GG3VFv6X۝[\Y̌LKK[\LMLMLȈ[HY'th="150" height="150" />[/caption]
+<ul>
+	<li>I ran a 1/2 marathon</li>
+	<li>I got an awesome metal</li>
+	<li>The course is mostly flat</li>
+	<li>The water stations are every mile and a half or so</li>
+	<li>The course was clearly marked</li>
+	<li>There were over 19k people that ran it</li>
+	<li>Parking was easy (at least at 6:30 am it was)</li>
+	<li>The shuttle to the starting line was easy to find, easy to get on</li>
+</ul>
+[caption id="attachment_2940" align="alignleft" width="150" caption="I gotta go!!!"]<img class="size-thumbnail wp-image-2940" title="lines" src="https://iquitagain.com/wp-content/uploads/2011/01/lines-150x150.jpg" alt="" width="150" height="150" />[/caption]
 
 THE BAD:
 <ul>
-	<lQ͡ѱ݅́ѥѡЁձ$݅́ݕvrBc3FR&rFVG&VBfbCFVw&VR	[܈ݙ\[\OBOOH\[ I saw after getting off the shuttle were rows and rows oеѥ̀ݕͥȁɔЁͶvVǒ&VR&W2vFƖW2BƖW2bVSƓРƙϕ\H\ۉH\[[YHY]^g my coffee cup; after walking around for several minutes,ݔЁٕѡЁ݅́ѕ䁽ٕȁvvsƓРƓFF6bF&V7F*BYHYH[HYۘYH܈\H\HXe or where to go once we finished the race.  We spent ovȁȁ݅ݸѡɕЁЁѼѡr6"&V6W6RRBFVvW&RFR&&VR"Bv9]H\Y[H[HZHX]\\ۙHgy, while a police officer told us another - and we came aɽ͕ٕ́Ʌͼȁѡȁи𽱤4)mvFC&GF6VE#3"Ɩv&Ɩv&vB"vGF###YȈ\[ۏH\O[Y\H^K[YY][HZ[XYKLLH'title="trash" src="https://iquitagain.com/wp-content/uplo̼ļĽɅ͠􈈁ݥѠԈr#3"6FVХDRTUT5DT@УVРƓvRFܛH\[[H[[ݙ\Z[Y\g first coral</li>
-	<li>Each coral got their own 'gun', bЁѡ݅́ɽѡЁ݅ٔ𽱤4($5rVBv&rFFwBvWB7GW&W2Bv6wB)H]HHܚ]]H[وH[HHOOBgl>
+	<li>The shuttle was blasting the heat full on - I was sweating at 6:30 in the morning then dropped off in 40 degree cold to stand for over an hour</li>
+	<li>The first thing I saw after getting off the shuttle were rows and rows of port-a-potties - no welcome sign, no your here, just smelly blue boxes with lines and lines of people</li>
+	<li>There wasn't a trash can in sight... I had to throw away my coffee cup; after walking around for several minutes, we did find one, but even then, it was completely over flowing</li>
+	<li>A Total Lack of Direction!  At no point did we see any signage for where to go to start the race or where to go once we finished the race.  We spent over an hour walked up and down the street just to find the car because no one had any idea where the "blue" lot was that we parked in - and a bike cab driver told us one way, while a police officer told us another - and we came across several people also looking for their lot.</li>
+[caption id="attachment_2939" align="alignright" width="225" caption="Trash"]<img class="size-medium wp-image-2939" title="trash" src="https://iquitagain.com/wp-content/uploads/2011/01/trash-225x300.jpg" alt="" width="225" height="300" />[/caption]</ul>
+THE UNEXPECTED
+<ul>
+	<li>We didn't cross the starting line until over 40 mins after the first coral</li>
+	<li>Each coral got their own 'gun', but the clock was from the first wave.</li>
+	<li>My phone quit working - I didn't get any pictures and I wasn't able to save the workout at the end of the run!!!</li>
+</ul>

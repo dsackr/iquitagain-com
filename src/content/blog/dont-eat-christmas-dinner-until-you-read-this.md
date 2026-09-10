@@ -1,27 +1,39 @@
 ---
 title: "Don't Eat Christmas Dinner Until You Read This!"
-description: "This time of year is so focused on food that its hard not\u047c\u0461\u0401\u0761\u0401\u0501\u0430\u0201\u0755\u0430\u404d\u0356r\u05d2FF7FFfB*'WB262vRF&WB[ZYH[Y][Y^H[[['y, \"Maybe after the holidays\". I know because I've sai"
+description: "This time of year is so focused on food that its hard not to think about what you eat, your weight, and in my case, my addiction to food. But as soon as we thin"
 pubDate: "2008-12-23"
 author: "Dale Sackrider"
 tags: ["Holidays", "diet", "Weightloss Articles", "losing weight", "christmas"]
 draft: false
 ---
 
-This time of year is so focused on food that its hard notѼѡЁݡЁԁаȁݕа䁍͖rגFF7FFfB*'WB262vRF&WB[ZYH[Y][Y^H[[['y, "Maybe after the holidays".  I know because I've saidѡЁѥ͕́
-%ԁɔЁtfW&VFW"FV'vFrVFgFW"FRƖF\Ȉ\ZH[[X^Z[H[]Z]X[HHgst after this last beer" - ok, maybe more like "Just afteȁѡ́ЁՈɅݰ4(4)5Ё́хЀ٥٦vrrFRƖF2vFF2ƖRvVBFW&FrByHX[H[\]]\Ȉ]܈HYX]	ust not a good idea - it triggers a binge.  The more I lɸЁѥѡɔ$͕܁ѱݔvVFW'7FB&WBB*BWfW'RFBfW&VG22ۈYX\\]\[ۙH]][\[[holic, so it can be difficult to know that someone has thɽ
-	Ёɥ́ѕѼٔѥٔͽvƗFW2vRGVvRW'6VfW22vWGF2&RFi]\X\HY[HYHY[ۙH]\^[Y[Hݙ\gight - just know they may have a problem.  Why is that iх$ԁͭ4(́屔ѕе聍wFW##DRDu2R4TR4T@ФUdU"DB	HQVHSTUUSNσB\]YH^g I still believe <a href="https://iquitagain.com/weightlo̵ѥٕ̽役̵еՑԈхɝ}͕sWfW'&G2dC'WBf"F6RfWrW6WF2WB	\K\\Y܈[KBBۙϓ[X\HH]\'talk about your own weight issues</strong>
+This time of year is so focused on food that its hard not to think about what you eat, your weight, and in my case, my addiction to food.  But as soon as we think about losing weight, we think diet, then holiday food and finally, "Maybe after the holidays".  I know because I've said that many times myself.  If you are a food addict like I am, an overeater - then "waiting until after the holidays" is like an alcoholic saying, "I will quit, really! Just after this last beer" - ok, maybe more like "Just after this last pub crawl".
 
-Its hard en՝Ȁٕ́ݕЀЁ٥Ѽv7FVF6VRv2WfW"&VV#'2fW'vVvBF[X][]	\H[\[X\XKgt often triggers an eating binge for overeaters.  Lets bЁɔԁɕ䁹Ѽ͔ѡ͔ձ̀vB&RFBV6RbRv6wBFR&W7BFVf"R	H]^Z[]Y[۝وHYX\[H'ike saying to a crackhead - "I really shouldn't, but I juЁфѡ́܁Ʌ4(4)Qѡݽ͔ѡvƗ7FVrFRFƲ&WBrV6RfRF6R	\\[[[H[X][HUTZ[ZY  Seriously, would you tell an alcoholic that you can drѡմԁ݅
-$ЁvB6fW'6F$גR2Bv6XȈHH^H[YH\[H[H[ZHH\' without getting drunk!  Isn't that terrible?"
+Most diets talk about 'surviving' the holidays with tips like 'eat in moderation' and 'try healthy alternatives" but for a food addict, that's just not a good idea - it triggers a binge.  The more I learn about food addiction, the more I see how little we all understand about it.  Not everyone that overeats is an addict, just as not everyone that gets drunk is an alcoholic, so it can be difficult to know that someone has the problem.  But Americans tend to have addictive personalities, we indulge ourselves as gluttons in more than a few areas - so if you see someone that is extremely overweight - just know they may have a problem.  Why is that important? I'm glad you asked.
+<h3 style="text-align: center;">TOP 5 THINGS YOU SKINNY PEOPLE SHOULD
+NEVER DO AT A HOLIDAY DINNER WITH FAT PEOPLE:</h3>
+First, let me say I still believe <a href="https://iquitagain.com/weightloss-articles/everyone-is-fat-including-you" target="_self">Everybody is FAT</a> - but for those few exceptions out there, this list if for you.
 
-<stron9յȀȀ9ٕȀͥЀ𽕴Ёͽͽw'F7V"fC7G&sРФbFW6BFW"6W6HY[[[Hٙ\Y]^HX^HHZ[]oid overeating, or maybe they are just dieting in generalЁͅ她ѡЁѥ́ձЀͅ她wvRR67BvRwG'Br276&R*vRFwBwIܞIYHHX]][Hو]]ۉH	ڝgst a little piece' - it will be three pieces.  Maybe we'ٔɕ䁕ѕ݅䁽ٕȁȁ䁅݅ɔvrF7FFR&VVFrbvR6G&BРУ7Iܛۙϓ[X\H]\^H]Y\[ۜ]H]\ۧ's diet</strong>
+<strong>Number 1 - Never talk about your own weight issues</strong>
 
-If we want to talk about it, we will.
-%ԁѥݔЁ܁չ̰ɕЄɕwF66'WBFVG&B*Fƶr&WBfBBy]XH\[X][[HHY\HY[وZgne is color blind and every time someone new finds out, tЁѡѡ䁅ͬ̀ݡЁȁ́ѡ̈
-$vfRWfVFRFBח6VbvVfVBWB*גB]ܝY[\XH[H[[[HX\YHay I'm on a diet, I've lost weight, or I'm a food addict,ͭѼ͍ɥ䁑䁙х́ͥȻ
-rWfVrFRBFR&6f"6rvVvB6&RIܚY\܈YHو\˰H[[YYX][Hܙ\H]gghts like "you are doing so good, you deserve a piece of 4(4(ɽ9յȀЀ9ٕȁѕ̀ݡН́ݽɭrf"RrbRfRWfW"&VV2fB2W37G&sР\\YHY\[[[X\H[]\H[u are trying to offer advice.  I love to hear how someonЁѡȁݕЀ́́ѡȁݕЁ́̀v'2*bRW7B7B6'2BW"V'27G'VvvRFXX[\YX[ZY]\pHۛ]	[' be seriously, Shut UP!  You have no clue what it takes Ѽ͔ѡչЁݕЁݔٔ̀Ё$v6FVRB7W&RFW6wB6VFRƗ7FVrFRFX][H	Y]	˃BBۙϓ[X\HH]\['l us to drink more water</strong>
+Its hard enough being 50, 60, or 100lbs overweight - but having to listen to someone who has never been 20lbs overweight, talking about losing that 'last 5 pounds' is unbearable.  It often triggers an eating binge for overeaters.  Lets be honest here - you may really need to lose those 5lbs - and maybe that piece of pie wasn't the best idea for you - but saying out loud infront of a food addict is kinda like saying to a crackhead - "I really shouldn't, but I just gotta try this new crack".
 
-We already know.  ÍЁԁɔ٥́܁ɵѥѡЁ́vrF6vRW"ƗfW2f&WfW"*fBW'6FRܞHو][H\]\ZYQ[H\HY'- I am going to drink more water from now on" and then weЁѼ͔͔́ԁ՝ѕл
-]ЁwR&VǒFv67W"vVR6C*&RFR	٘]\ۈ[Hۛ\Y[Y[\HH܈Zgr entire life, and has never had an interest in losing weЁȁ݅эѡȁЁչѥ܀ԁՅv&RFRf'7BW'6F7VvvW7BFW6VBG&&Rv\][\[YZpYHY[gon, we know already?
+The only thing worse than listening to you talk about how much you have to lose, is listening to you talk about how you NEVER gain weight.  Seriously, would you tell an alcoholic that you can drink all the rum and coke you want?  I can just imagine that conversation - "Hi, my name is John and I'm an alcoholic" - "Hi John, my name is Cindy and I drink like a fish without getting drunk!  Isn't that terrible?"
 
-Its difficult to admit to your fŕѡЁԁɔ她Ѽ͔ݕ쁕ٕɔͼѢvBRfRFF7F*FW6R&RW7BfWrbFRI[]XZHY^H[\YX[H]\'you the most during dinner?  Feel free to leave your ownЁЄ
+<strong>Number 2 - Never <em>insist </em>a fat person try some particular food</strong>
+
+If they said no to your sausage stuffing when you offered it, they may be trying to avoid overeating, or maybe they are just dieting in general - but saying no the first time is difficult - saying no while you insist we 'try it' is impossible.  We don't 'try' stuff - we eat it, and a lot of it.  It won't be 'just a little piece' - it will be three pieces.  Maybe we've already eaten way over our daily allowance and are trying to stop the bleeding - If we say no - drop it!
+
+<strong>Number 3 - Never play 20 questions with a fat person's diet</strong>
+
+If we want to talk about it, we will.  If you noticed we lost a few pounds, great! Feel free to say so, but then drop it.  Talking about food and how much we aren't eating can be a trigger.  A friend of mine is color blind and every time someone new finds out, the first thing they ask is "what color is this".  I may have even done that myself when I found out.  My point is, its cruel to ask such a thing - and when you hear me say I'm on a diet, I've lost weight, or I'm a food addict, asking me to describe my daily food intake is similar.  Evening the pat on the back for losing weight can be a trigger for some of us.  We immediately wrestle with thoughts like "you are doing so good, you deserve a piece of pie!"
+
+<strong>Number 4 - Never tell us 'what's working for you' if you have never been as fat as us</strong>
+
+This is slightly different than Number 1 in that here you are trying to offer advice.  I love to hear how someone lost their weight - as long as their weight loss is 100lbs.  If you just lost 3lbs and in your 5lbs struggle to reach your ideal weight, shut up!  I know that's blunt, be seriously, Shut UP!  You have no clue what it takes to lose the amount of weight we have ahead of us - but I can tell you it sure doesn't include listening to you talk about how you 'did it'.
+
+<strong>Number 5 - Never tell us to drink more water</strong>
+
+We already know.  Its not like you are giving us new information that is going to change our lives forever.  No fat person in the history of fat people has ever said "OMG, you are so right - I am going to drink more water from now on" and then went on to lose 100lbs because you suggested it.  What do you really think will occur when you say it?  Maybe the fat person you know has been locked in up a room for their entire life, and has never had an interest in losing weight or watching their diet until now - and you actually are the first person to suggest they should drink more water... that could happen, right??? Ah.. NO!  Did I mention, we know already?
+
+Its difficult to admit to your friends that you are trying to lose weight; even more so that you have an addiction.  These are just a few of the things that make holiday dinners difficult - what bothers you the most during dinner?  Feel free to leave your own list in a comment!

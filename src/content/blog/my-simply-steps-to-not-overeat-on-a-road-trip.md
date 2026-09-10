@@ -1,20 +1,27 @@
 ---
 title: "My Simple Steps to Not Overeat on a Road Trip"
-description: "Tonight, I'm writing this post from a hotel. I'm on a r\u0265\u0765\u0460\u0461 $\u0401\u0265\u027d\u0265\u047cwFvRvRG&fr*G2&B&Br'WB H\u0648\\]Z[XY]H\u06d9Y\\g had to figure out a new game plan. At first, I started\u047c\u0461\u0400"
+description: "Tonight, I'm writing this post from a hotel. I'm on a road trip with the family. I eat during a road trip to stay awake while driving. Its a bad habit, I know -"
 pubDate: "2009-01-16"
 author: "Dale Sackrider"
 tags: ["Weightloss Articles"]
 draft: false
 ---
 
-Tonight, I'm writing this post from a hotel.  I'm on a rɥݥѠѡ
-$ЁɥɽɥѼwFvRvRG&fr*G2&B&Br'WB	Hو\]Z[XY]HۙY\g had to figure out a new game plan.  At first, I startedѼѡЀ́ѼЁݡɥ٥|*BBb7VvvW7F2g&GvGFW"f6V&f[K[Y[ˈ\H\HH]و[NB[BOO\rots</li>
+Tonight, I'm writing this post from a hotel.  I'm on a road trip with the family.  I eat during a road trip to stay awake while driving.  Its a bad habit, I know - but a lot of us do it.  Being faced with a long road trip, I had to figure out a new game plan.  At first, I started to think about 'good' food choices to eat while driving.  I had a lot of suggestions from twitter, facebook, family, and friends. Here are a few of them:
+<ul>
+	<li>carrots</li>
 	<li>celery</li>
 	<li>grape tomatoes</li>
-	<խ̀ݡ$չЁɔՍյ̤𽱤4($vW3ƓРƓw&W3ƓРƓ&63ƓУVФܙX]Y\[ۜH[X[HHH[\gnd celery taste bad - and even though I like grape tomato̰ѡ݅ѡեЁݡԁєѼѡ́ЂwFw&72f"R*FR&W7B&VwB&B'WBvfBIXH^H؛[H\ۉ]HX]	ؘY	H]]'I eat too much food.  Bad food doesn't help, but even goɝՅѥ䁍
-Ʌw622C"6&W2B326&'2&W2b&62ܙH[ܚY\˰H[X\[HX]܈\وaisins during a long drive (not that I ever have).
+	<li>cukes (which I found out are cucumbers)</li>
+	<li>apples</li>
+	<li>grapes</li>
+	<li>raisins</li>
+</ul>
+All great suggestions - well, not really - I think carrots and celery taste bad - and even though I like grape tomatoes, the way they squirt when you bite into them is a bit to gross for me!  The rest aren't bad, but I'm a food addict - my problem isn't that I eat 'bad' food - its that I eat too much food.  Bad food doesn't help, but even good food in large quantity can be bad.  A mini-box of raisins has 42 calories and 33 carbs - 10 boxes of raisins are 420 calories.  I could easily eat 20 or 30 boxes of raisins during a long drive (not that I ever have).
 
-As ԁ͕ٕȵѕȰ$ЁͥɕvfBvFvB*fRFfBFW"Fw2FVWח9[[][]Y[HۈHYIݙHYYH][gs like music and radio, and playing games with the famil䁱ѡѕ̈ȁݡѕٕȁԁ́ЁvVRfBFRWGFW'2bFR&WB&FW"&IYۜ\Y[HY\وX\K]g only last so long - and after the kids fall asleep and yȁ͔́ѕȁɽͥѼԁ݅w2vWG2Fff7VB*גv26RBV7FGWƖ9]H[HH][[H^\˰\H\HH\'s in order:
+As you see, being an over-eater, I can't simply replace bad food with good.  I have to find other things to keep myself stimulated while on the road.  I've tried a few things like music and radio, and playing games with the family like "find the letters" (or whatever you guys call it when you find the letters of the alphabet in order on road signs, car tags, and the sides of truckers).  But those only last so long - and after the kids fall asleep and your spouse nods off after promising to keep you awake, its gets difficult.  My plan was simple and easy to duplicate and I hope it helps you guys too.  Here are the steps in order:
 <ul>
 	<li>Get a hotel room</li>
-	<li>Go toͱ𽱤4(հ4)9Є
+	<li>Go to sleep!</li>
+</ul>
+Good Night!

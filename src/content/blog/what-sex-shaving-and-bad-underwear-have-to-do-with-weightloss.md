@@ -1,19 +1,24 @@
 ---
 title: "What Sex, Shaving, and Bad Underwear have to do with weightloss"
-description: "IQuit... Again! has turned one year old and sadly, I'm as\u0401\u0301$\u0745\u0301\u5545\u0201 $\u0654\u0355\u024d\u4071r&V6FB6FVRFw&VBF2VFrbvVY\\[Z[\\\\\u02c80[H\u06d9\\[Hgte of IQA and my big waist line, I came across <a h"
+description: "IQuit... Again! has turned one year old and sadly, I'm as fat as I was one year ago. I have searched my life for a reason that I continue to 'round this mountai"
 pubDate: "2009-12-01"
 author: "Dale Sackrider"
 tags: ["Book Reviews"]
 draft: false
 ---
 
-IQuit... Again! has turned one year old and sadly, I'm asЁ́$݅́啅ȁ
-$͕ٔɍ䁱r&V6FB6FVRFw&VBF2VFrbvVY\[Z[\\ˈ0[Hۙ\[Hgte of IQA and my big waist line, I came across <a href="h輽ܹɕхɅѥɥ́sРФF2FRWF"bRbגff&FR&2&VIXXH\][ۘ[
-H[HX[[YH]'le="Permanent Link to Sex, Shaving, and Bad Underwear" re􉉽ɬɕ輽ܹɕхɅѥwcsr#4U4drB$BTDU%tT#"6VvBגGI[[ۋ0^H][Yو\]H[\\geant to provoked the same reaction from you!  Did it wor4(4)%́аɕѱѼ䁥ՔɔЂtУ&6VFSBFRRFV6FRFB^(	&RFYX[H\Z[^H
-[ܙH[[H[ܙH[[g No more unprotected sex!), but then when temptation strḭԁȁݽɐ𽉱սє4)$rV"vv2vrF7FfW&VFr'WB262	YX[[Y\
-[0YZ]Yp[[Y\[]Y[HY' around, I was stuffing my face with pizza, doughnuts, anͭѱ̄
-]Ё݅́́٥͔Ѽ
-!ٔvRRvVRw&FR$f'GVFVǒFW&^(	2v&VH؛[KBB\\Y[HY\H[ZHY[gptive actions to keep ourselves in check; these actions h́ɔѵ̸
-!ͼ$ͽѡvrvRFW&W7FVBvVvB72BVFFB	[[Z]YH^Hۈ\H]^H^[^\gth red velvet cake? An interesting concept for sure, butݡЁɕѥٗ
-ѥձ$ՅхѼvg&FR6V6BBF&B6W'fw2BVFW3*י\Y\]HY\]KBB[\Yg, I thought starting a blog would commit me to the courseЁ́䁉՝ѥ̰$ͥեЁrvРФvWBR&VB27Bf"W'6VfW2I]\Z[H^][[Y[\X\]['pre-commitment, but for me, I think Tubbs' Challenge is o݅$ٔɔѕ͕Ѽѡ́v*7F'FVBF27B&Vf&RFR6VvR&VvBy[]HZ[H[Y]ܛ[[ۙHۈ^H'draft shelf otherwise.  Now my question is, does this poЁչЁ́䁍
-1䁹ЀȁvFW"VG'&Vf&RFRvB2fW"РФ%ErbR][XYYXXH\][ۘ[HX\Hˈ0]ۙg of my 'must reads' and I know you will enjoy it.
+IQuit... Again! has turned one year old and sadly, I'm as fat as I was one year ago.  I have searched my life for a reason that I continue to 'round this mountain' of weight loss struggles and failures.  While pondering the fate of IQA and my big waist line, I came across <a href="http://www.predictablyirrational.com">Dan Ariely's blog</a>.
+
+Dan is the author of one of my favorite books (Predictably Irrational) and a recent blog post called "<a title="Permanent Link to Sex, Shaving, and Bad Underwear" rel="bookmark" href="http://www.predictablyirrational.com/?p=677">SEX, SHAVING, AND BAD UNDERWEAR</a>" caught my attention.  My blatant theft of his title in this post is meant to provoked the same reaction from you!  Did it work?
+
+In his post, he spoke directly to my issue here at IQA:
+<blockquote>At time X you decide that you’re done acting a certain way (No more smoking! No more spending! No more unprotected sex!), but then when temptation strikes, you go back on your word</blockquote>
+I decided one year ago, I was going to stop overeating but as soon as meal times (and admittedly all times in between) rolled around, I was stuffing my face with pizza, doughnuts, and skittles!  What was Dan's advise to me?  He did give me hope when he wrote "Fortunately, there’s a way around the problem..."
+
+Mr Ariely suggests we can take preemptive actions to keep ourselves in check; these actions he calls pre-commitments.  Hmm... so I can do something now, while I am interested in weight loss and health that will commit me to stay on course at my next rendezvous with red velvet cake? An interesting concept for sure, but what preemptive action could I actually take to keep away from the second and third servings at meal times?  My first thought was to get a bigger plate.
+
+Joking aside, I thought starting a blog would commit me to the course, but as my blog name suggestions, I simply quit blogging... again.
+
+I'll let you read his post for yourselves to determine how sex, shaving, and bad underwear fit into pre-commitment, but for me, I think Tubbs' Challenge is one way I have 'pre-commited' myself to blogging this month.  I started this post before the challenge began and would have likely allowed it to grow cold and alone on my draft shelf otherwise.  Now my question is, does this post count as my challenge post?  Likely not - look for another entry before the night is over...
+
+BTW - if you haven't read Predictably Irrational - please do.  Its one of my 'must reads' and I know you will enjoy it.

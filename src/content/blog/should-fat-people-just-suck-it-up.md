@@ -1,26 +1,23 @@
 ---
 title: "Should Fat People just Suck it up?"
-description: "I recently watched an episode of West Wing, where a chara\u0455\u0201\u0445\u0301\u04014(\u5c54vVgC3#v7G&s6\u019637G&sFwB\u0759H\u06d9\u03db\u06d9H[\u06d9\u03cbH\u06c9[\\[[H'who have one drink. I don't understand people who of feel"
+description: "I'm not looking for sympathy, just making the point that people see food differently than other addictions.  A friend of mine says, \"If only I could quit food cold turkey...\"; Unlike the alcoholic, I can't quit eating or going to places where people eat.  Most people see overeating as a matter of will power, not addiction. So tell me - do you think food is a real addiction?  Do you see it differently than other addictions?  Are we 'fat people' just looking to be the next victim group - over sensitive and seeking protection by the politically correct gang?  Should 'fat people' just suck it up?"
 pubDate: "2008-12-22"
 author: "Dale Sackrider"
 tags: ["Weightloss Articles"]
 draft: false
 ---
 
-I recently watched an episode of West Wing, where a charaѕȁх́Ё4(屔vVgC3#v7G&s6Ɩ37G&sFwBݙHۙϛۙH[ۙϋHۉ[\[[H'who have one drink. I don't understand people      who <sɽٔɽݥѡх&rFwBVFW'7FBVRv67G&sFWwfRBVYۙϋ[OۙϘ[[H]H[Ytrong></em> of feeling like this?</p>
+I recently watched an episode of West Wing, where a character talks about being an alcoholic:
+<p style="padding-left: 30px;">I'm an <strong>alcoholic</strong>, I don't have <strong>one drink</strong>. I don't understand people who have one drink. I don't understand people      who <strong>leave half a glass</strong> of wine on the table. I don't understand people who say <strong>they've had enough</strong>. How <em><strong>can you have       enough</strong></em> of feeling like this?</p>
 
-Replace alcohol ݥѠ$ѡɔ
-%́ɐѼٔ܁Վv&VFVB*Bv&vRgFVvFV62w&WۙH]H]Y]ܚ\ܙ\H[YH[YH\YK' but leave half the sides.  I don't get that.  I clean є$ȁɕɽѼݥѡͅՍ́vV6W6RƖ6rFRFR266ǒV66WF&R*V	H[[Y]܈Y[[ܚ[X]H[H'on shelves at the end of the cubical row, then others cutѡѼЁхѽՍ
-$ՅхrRBf'7CFV6V6BS6WFW2F&B*	[\H\HH[H\\][\\˰H'd Stephanie today, I don't have a problem eating healthy,́ѥɽɽ𽕴ѡѡНrFff7VB*6G2&Rw&VB6fW&VB6VW6RBG&Y[YHHXZ[[YH[\\BBIH'looking for a crutch to lean on, or a reason to excuse ovɕѥ
-$Յ䁑Ёѡͥє
-Uw7FFrW7Br&BגFF7F2rFח6Vو܈X[[\[[\H[Y]KHۛH^HHgll be able to move toward change.  I want to lose weightЁ$ЁٔѼչх܁$Ёɔ
-ɅvFWB"FV6Rv&WB&WFRVRFRFRvYYٙ]ۛ[]YH\H[[[]'is the only way I will keep it off.  That's why I'm thinЁ=ٕɕѕ́嵽̻
-9ѡН́wBR&RFBFW"РХ7VF7FWRB	H[HۈX\]X][]\YX['t making a good choice there, but just as I was about to ɑȰMѕ՝ѕѡͅ
-$ɕvBvVFWWBFR6FRb6&'&VBFRG&FB	[X]]HܘXYH]\[XYوܙ\['a diet coke (I recently learned that diet coke has sodium
--ݥ$ѕѼ́Ʌ܁ѡչv&W2*G2rFRrVRv6'R	ۉ]H][O[\[H][H\O[OHgt completely, just eat it in moderation".  People don't ͕́ѡ݅ͅѡ͕́ȁ՞rFF7G3RvVBWfW"6F6Ɩ2*'R6[[HY\\[Z][\[ۙH[g in line at the company pot luck, a co-worker and I were хЁ̰ݡѡȁɕwFfVǒ6wW6B$6VBvFWfW"vBBFYۉYXYH[H\[YHXY]H['n't help but think if I said to an alcoholic "I can drinḱՍ́$݅аЁ͸ЁЁ܁rvVBFBv27WFRРФvBrf"7F\XZ[H[][HYHY\[H'than other addictions.  A friend of mine says, "If only $ձեЁɭ丸Uѡt6wBVBVFr"vrF6W2vW&RVRVB)[[HYHݙ\X][\HX]\و[\ot addiction.  That's where Overeaters Anonymous comes i
-́Ёɽѡչхѡ́vb&VrFF7FVBFfBРФf'7BV&B&WBfW&VFYܜ[۞[[\ۈ[\\Hو[[YHHXZȈ]X[arter.  I don't remember the details, I was a kid, but IɕȁѡЁ݅́չ䁕ͽ
-$r'WBf&vGFVFRw&WW7FVBVFג'&FW"֖r	؜Y]\YHY\\^KHXYZ\X]H'(<a href="http://oa.org" target="_blank">http://oa.org</aչѡɔɔ͕ٕɅѥ͔́Ѽ䁡͖rFVvFWFfRƖRBRVWFw2bR	[]HXHXHۙKH[H[Hoin a face to face meeting. I doubt I will be allowed to хЁѡѥ́ՔѼѡ嵽̜ɔwFV'WBv6&RגW'6WW&6W22V&	[ܛ
-IH[]	ܛY\]][H[t physically!).
+Replace alcohol with food - and I am there.  Its hard to believe how much I related.  At work we often go to lunch as a group, and I have watched co-workers order the same entree as me, but leave half the sides.  I don't get that.  I clean my plate; I look for a bread roll to wipe up the sauces because licking the plate is socially unacceptable.  People bring in doughnuts or bagels into work and leave them on shelves at the end of the cubical row, then others cut them in half to not take too much.  I usually take only one... at first; then a second one; sometimes a third.  Then there are the candy dishes at peoples desk.  I told Stephanie today, I don't have a problem eating healthy, its eating <em><strong>only </strong></em>healthy that's difficult.  Salads are great, covered in cheese and dressing, followed by a main entree and dessert.
 
-So tell me - do you think food is a reѥ
-ԁ͕Ёɕѱѡѡȁv7F3*&RvRvfBVRrW7BrF&RFRWI[OX[Hܛ\[OHݙ\[]]H[YZ[gction by the politically correct gang?  Should 'fat peopЁՍЁ
+I'm not looking for a crutch to lean on, or a reason to excuse overeating.  I'm actually doing just the opposite.  Understanding just how bad my addiction is, looking into myself for real understanding is, I believe, the only way I will be able to move toward change.  I want to lose weight, but I first have to understand how I got here.  A crash diet or intense workout routine may help me take the weight off, but knowing what got me here and changing that is the only way I will keep it off.  That's why I'm thinking about joining Overeaters Anonymous.  No - that's not a joke... More on that later.
+
+Sunday, Stephanie and I went to a Boston Market to eat lunch.  It was difficult making a good choice there, but just as I was about to order, Stephanie suggested the chopped salad.  I realized when they put the side of cornbread on the tray that I couldn't eat it.  I grabbed a water instead of ordering a diet coke (I recently learned that diet coke has sodium).  Knowing I'm addicted to food helps me draw the boundaries.  Its amazing to me how many people will say "you don't have to cut [<em>insert any food item here</em>] out completely, just eat it in moderation".  People don't see food addicts the same way they see alcoholics or drug addicts; you would never say to an alcoholic,  "you can still drink a beer, just limit yourself to one".  While in line at the company pot luck, a co-worker and I were talking about making good food choices, when another relatively skinny guy said "I can eat whatever I want, it doesn't affect me".  People around me chuckled, but I couldn't help but think if I said to an alcoholic "I can drink as much as I want, it doesn't affect me" how many people would think it was cute.
+
+I'm not looking for sympathy, just making the point that people see food differently than other addictions.  A friend of mine says, "If only I could quit food cold turkey..."; Unlike the alcoholic, I can't quit eating or going to places where people eat.  Most people see overeating as a matter of will power, not addiction.  That's where Overeaters Anonymous comes in.  As a support group, they understand the challenges of being addicted to food.
+
+I first heard about Overeaters Anonymous on an episode of "Gimme a break" with Neal Carter.  I don't remember the details, I was a kid, but I do remember thinking it was a funny episode.  I had all but forgotten the group existed until my brother-in-law brought it up to me yesterday.  I checked their website (<a href="http://oa.org" target="_blank">http://oa.org</a>) and found there are several meetings close to my house, although they do have online and phone meetings if you can't get to a face to face one.  I am going to try to join a face to face meeting. I doubt I will be allowed to talk about the meetings due to the 'anonymous' nature of them, but I will share my personal experinces as I learn and grow (ok, I'm hoping thats 'grow' figuratively and not physically!).
+
+So tell me - do you think food is a real addiction?  Do you see it differently than other addictions?  Are we 'fat people' just looking to be the next <em>victim group</em> - over sensitive and seeking protection by the politically correct gang?  Should 'fat people' just suck it up?

@@ -1,14 +1,12 @@
 ---
 title: "2012.01.03 Late Night Snack"
-description: "<div id=\"attachment_3745\" class=\"wp-caption alignleft\" st\u5c54\u0765\u0460\u0255\u0445\u0401\u0434\u0508\u0255r&GG3VFv6GF6VEC3sCR#\u0196r673)^K[YY][HZ[XYKL H]OHLL [H src=\"https://iquitagain.com/wp-content/uplo"
+description: "A frozen banana and two peanut butter oatmeal cookies (homemade, no sugar or processed food)"
 pubDate: "2012-01-04"
 author: "Dale Sackrider"
 tags: ["Food Journal"]
 draft: false
 ---
 
-<div id="attachment_3745" class="wp-caption alignleft" st屔ݥѠɕхЁдԈɕr&GG3VFv6GF6VEC3sCR#Ɩr673)^K[YY][HZ[XYKLH]OHLL[H src="https://iquitagain.com/wp-content/uploads/2012/01/2|ԹѥvWB#Fc'"g&V&BGvVWB'WGFY܈]YX[Y\
-Y[XYKY\܈\Y
-g
+<div id="attachment_3745" class="wp-caption alignleft" style="width: 300px;"><a rel="attachment wp-att-3745" href="https://iquitagain.com/?attachment_id=3745"><img class="size-medium wp-image-3745" title="20120104_000730" alt="" src="https://iquitagain.com/wp-content/uploads/2012/01/20120104_000730-300x225.jpg" /> </a><p class="wp-caption-text"></p></div><br />A frozen banana and two peanut butter oatmeal cookies (homemade, no sugar or  processed food)
 
  

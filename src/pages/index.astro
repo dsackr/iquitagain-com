@@ -8,10 +8,10 @@ const sortedPosts = allPosts.sort((a, b) => b.data.pubDate.valueOf() - a.data.pu
 
 // Featured key posts
 const featuredSlugs = [
-  'quest',
   'my-name-is-dale-and-im-diabetic',
   'the-pain-of-regret-has-become-a-chronic-pain-in-my-life',
-  'finding-my-way-back'
+  'finding-my-way-back',
+  'running-a-marathon-in-a-year'
 ];
 const featuredPosts = featuredSlugs
   .map(slug => sortedPosts.find(p => p.id === slug))
@@ -40,8 +40,8 @@ const recentPosts = sortedPosts.slice(0, 10);
         <a href="/archive" class="px-5 py-2.5 rounded-xl bg-emerald-600 hover:bg-emerald-700 text-white font-semibold shadow-sm transition-colors">
           View posts →
         </a>
-        <a href="/posts/quest" class="px-5 py-2.5 rounded-xl border border-emerald-300 dark:border-zinc-700 bg-white dark:bg-zinc-800 text-zinc-800 dark:text-zinc-200 font-semibold hover:bg-emerald-50 dark:hover:bg-zinc-700 transition-colors">
-          The Quest
+        <a href="/about" class="px-5 py-2.5 rounded-xl border border-emerald-300 dark:border-zinc-700 bg-white dark:bg-zinc-800 text-zinc-800 dark:text-zinc-200 font-semibold hover:bg-emerald-50 dark:hover:bg-zinc-700 transition-colors">
+          About the Journey
         </a>
       </div>
     </div>

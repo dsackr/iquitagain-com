@@ -1,14 +1,16 @@
 ---
 title: "Another Day One"
-description: "This isn't the first time I've started a new diet program\u0301\u0765\u0460\u0655\u407d\u0461\u0200\u407d$\u0570\u0461\u0401\u0461\u0301vVB&RFR7B&FR\"\u0420\u0424vFR*fVvWF\u061b\\[Z]^H]]]X]\u02c8H[Ygt soda today and I ate a \"health food\" cookie th"
+description: "This isn't the first time I've started a new diet program. As with every other \"day one\" - I'm hopeful that this could be the last \"day one\". Anyway - I ate all"
 pubDate: "2012-01-03"
 author: "Dale Sackrider"
 tags: ["Weight Loss Journal"]
 draft: false
 ---
 
-This isn't the first time I've started a new diet prograḿݥѠٕ䁽ѡȀ䁽$հѡЁѡ́vVB&RFR7B&FR"РФvFR*fVvWF؛\[Z]^H]]]X]ˈH[Ygt soda today and I ate a "health food" cookie that StephaЁ̰ѕ̰ЁѕȸͥɾvFBB&vRBRf"'&Vf7B6܈[0Y]H]X\܈[\[Y[XYH'lit pea soup for a late night snack.
+This isn't the first time I've started a new diet program. As with every other "day one" - I'm hopeful that this could be the last "day one".
 
-There were severaݕեЁ͹́ѡɔѽ%Ё݅͸Ёѕw&&RF'WB7FFwBfRvBVFvi܈HYZIHۘ\Y]H[H][^\[\'for failure.
+Anyway - I ate all vegetables and fruit today but not without cheats. I drank diet soda today and I ate a "health food" cookie that Stephanie made out of oats, dates, and peanut butter. Aside from that I had an orange and an apple for breakfast, a salad for lunch, spaghetti squash for dinner and homemade split pea soup for a late night snack.
 
-For the next six weeks - I'm following a ɥЀЁѼ1ٔЁɔѡЁѕ$vvVvr6RvVVB&vvr&WBגfIX\[Y\[ۙH^KIHYY['hopeful at the same time...
+There were several between meal fruit snacks in there too. It wasn't a terrible day, but I still don't have a good meal plan down for the week so I'm concerned that I am setting myself up for failure.
+
+For the next six weeks - I'm following a strict "Eat to Live" diet plan (more on that later?). I plan on weighing in once a week and blogging about my food choices and struggles along the way. I'm both jaded and hopeful at the same time...

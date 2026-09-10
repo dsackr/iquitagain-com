@@ -1,11 +1,24 @@
 ---
 title: "Journal Entry: Dec 3"
-description: "I'll keep it short, I did not get to the gym - I did do w\u0461\u0438()]\u0700\u027d\u0455\u0251rv&WCR6''fC'&Vf7CVWCsV6 ]NYZ[M\\[\u071b[\u06d8X\u0388Hg Puffs: Unknown but likely 100 cal's Lunch: Chicken San"
+description: "I'll keep it short, I did not get to the gym - I did do well on the diet. Weight: 300.7 (no change from yesterday) Workout: Nope, sorry Food: Breakfast: Omelet:"
 pubDate: "2008-12-03"
 author: "Dale Sackrider"
 tags: ["Weight Loss Journal"]
 draft: false
 ---
 
-I'll keep it short, I did not get to the gym - I did do wѡи()]܀ɽѕɑrv&WCR6''fC'&Vf7CVWCsV6]NYZ[M\[ܛ[ۘXΈHg Puffs: Unknown but likely 100 cal's
-Lunch: Chicken SandwݥѠٕ聱́ѡ)ٕMAɽѕr&#Vv'WBƖVǒ6w0FW#F66V	̎X[Y]Z[Y\[Y]g and water.
+I'll keep it short, I did not get to the gym - I did do well on the diet.
+
+Weight: 300.7 (no change from yesterday)
+
+Workout: Nope, sorry
+
+Food:
+
+Breakfast: Omelet: 175cal / 4g fat / 19g protein / 16g carb
+Morning Snack: BBQ Soy Puffs: Unknown but likely 100 cal's
+Lunch: Chicken Sandwich with veggies: less than 500cal
+Evening Snack: Protein bar: Unknown but likely 100 cal's
+Dinner: Thai Chicken: 285cal / 5g fat / 34g protein / 31g carb
+
+Drink diet soda and water.

@@ -1,21 +1,22 @@
 ---
 title: "#153: Reflecting on this year so far - my most effective weight loss effort ever!"
-description: "[caption id=\"attachment_3351\" align=\"alignleft\" width=\"15\u0465]%\u0200\u043c\u043c\u0109t\ud957\udd5c\u0365\u9535\u0572vw\u0596vR33S\"FFS#3'6Fv\"7&3&GG3VFv\u06cbKX\u06dd[\\Y\u030cLK [\u06cb\u0208[Hgdth=\"158\" height=\"118\" />[/caption] Just a qu"
+description: "[caption id=\"attachment_3351\" align=\"alignleft\" width=\"158\" caption=\"Weigh In for 04/24/2011\"] [/caption] Just a quick note - I have 75 days (counting today whi"
 pubDate: "2011-04-26"
 author: "Dale Sackrider"
 tags: ["A year on purpose"]
 draft: false
 ---
 
-[caption id="attachment_3351" align="alignleft" width="15ѥ]%Ȁммĉt񥵜ͥ锵ղvw֖vR33S"FFS#3'6Fv"7&3&GG3VFvۋKX۝[\Y̌LK[ۋȈ[Hgdth="158" height="118" />[/caption]
+[caption id="attachment_3351" align="alignleft" width="158" caption="Weigh In for 04/24/2011"]<img class="size-full wp-image-3351" title="39lbsdown" src="https://iquitagain.com/wp-content/uploads/2011/04/39lbsdown.jpg" alt="" width="158" height="118" />[/caption]
 
-Just a quick note $ٔԁ̀չѥѽݡ́ɕ䁽ٕȤvFv'Vr#b"֖W2vFS2F2VgBVFvIH\[ۙ\HHXY\YX\H'a year on purpose? What about being 33 was so important?(4)$ɕ䁑Ё܀Ёѡ́啅ȁ́ѡЂw7V66W76gVGFVBBvVvB72גƖfRv3'2	ۋH]H[Y\[[X\]ۜH[ݙ\ 18 miles a few weekends ago, I have run races with BiggeЁ1͕
-ɥѥ
-ѥѱIո]IvTvFƒf6VBg&FR&vvW7B6W""&Vc)΋\]Z]YZ[KK^YX\[ۋ\\K̍K\[][\'l-5k10k-with-ail-vincent-from-the-biggest-loser">Ali VincѥѱIչݥѠMɽ9	é	vvW7B6W""&Vc&GG3VFv6vVvF76W&ܝ[[]]\[ۙKYK[XY\[\[ۙHOg>, and I have already scheduled a marathon.
+Just a quick note - I have 75 days (counting today which is already over) until I'm running 26.2 miles! With 153 days left until I'm 34, I'm starting to wonder why I picked this year to be a year on purpose? What about being 33 was so important?
 
-Currently Ѐ䁱̰$ݕ́܁ѡ$ٕٔȀ啅̺r*f7BFR7BFR6rFR#cw2v2FRf'7BI[YH
-]][[CBB܈H\[YH[^HYglt life, I believe <a title="#328: My Biggest Secret – $ٕٔȁѽ役ѡ́ɔɕ輽եvv6זV"W'6R3#ג&vvW7B6V7&WB֒ֆfRۙ]\]X[[ۙK]\XYܙHHSH\ZYO! I'm looking forward to the Warrior Dash this weekend an䁵ɔɅ́ѡ́啅ȸ
-9Ёݕ5
-ѼwV6f2vfRfW"RvVV2bfBW&ƖrFYHH[\\\HHH]OH^H^HY="https://iquitagain.com/food-journal/my-day">predictive хѕѡ5ѹÁ٥ѼݡwBג7GV&W7VG2&Rbe2&VV67W&FRvyZY܈HۈH^H\\H]TPH[gost 3 years ago!
+I really don't know - but this year has been the most successful attempt at weight loss in my life. I'm 39 lbs down, I have run two different half marathons, I ran over 18 miles a few weekends ago, I have run races with Biggest Loser celebrities <a title="#261: Run, Walk &amp; Roll 5K/10K with Ali Vincent from the Biggest Loser" href="https://iquitagain.com/a-year-on-purpose/261-run-walk-roll-5k10k-with-ail-vincent-from-the-biggest-loser">Ali Vincent</a> and <a title="Running with Sione from NBC’s Biggest Loser" href="https://iquitagain.com/weightlossjournal/running-with-sione-from-nbcs-biggest-loser">Sione Fe</a>, and I have already scheduled a marathon.
 
-Its not been easy - I mean there haveͽѥѱQЁЁɔхɽr"&Vc&GG3VFv6זV"W'6R#3FI[[Y[XYܙKX]\H\\Y[[Y\O[H'still have a long way to go (pun intended).  But for now,$ѼЁѡЁЁѡЁ$ɕwvVfW&BG'Vǒ&VƖWfR66RF2vVvBB\YHIHYH]H\ˈHۛHۧ't have thousands of readers like I had at one time hopedЁݥѠȁݥѡЁɝɕȁ͔$Ѽv&6B6VRג7V66W76W2BfW&W2גW2BIۜ^H[[\ˈ܈YK\\Y[Hܙgat tool to keep me going! So for all (or should I say botԁЁѡɔɕѡ́ɥЁ܀QvR&VƖWfRRfRVVBRBv6W'FFBY[۝[YH[\YHYH^H[[X]H[وing
+Currently at 269 lbs, I weigh less now than I have in over 8 years.  In fact, the last time I saw the 260's was the first time (let that sync in...)
+
+For the first time in my adult life, I believe <a title="#328: My Biggest Secret – I have never told anyone this before" href="https://iquitagain.com/a-year-on-purpose/328-my-biggest-secret-i-have-never-told-anyone-this-before">I CAN lose this weight</a>! I'm looking forward to the Warrior Dash this weekend and many more races this year.  Next week (Monday to be specific) I will have over 5 weeks of food journaling done - so I can start to compare those <a title="My day" href="https://iquitagain.com/food-journal/my-day">predictive statements</a> the MyFitnessPal has been giving me to what my actual results are. If MFP has been accurate, I'll weigh 267 lbs or 41 lbs down from my start here at IQA almost 3 years ago!
+
+Its not been easy - I mean there have been some <a title="#238: That moment before catastrophe" href="https://iquitagain.com/a-year-on-purpose/238-that-moment-before-catastrophe">discouraging times</a> and I still have a long way to go (pun intended).  But for now, I'm going to just enjoy that fact that I'm doing pretty well overall and I truly believe I can lose this weight.
+
+Last thought - I'm glad I have this blog. I know I don't have thousands of readers like I had at one time hoped - but with or without a large reader base - I'm able to look back and see my successes and failures, my ups and downs, my wins and loses. For me, this blog has been a great tool to keep me going! So for all (or should I say both) of you out there reading this blog right now - Thank you! I believe you have helped me and I'm certain that you will continue to encourage me to my ultimate goal of losing

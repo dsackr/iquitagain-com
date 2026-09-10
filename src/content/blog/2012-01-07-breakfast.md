@@ -1,10 +1,10 @@
 ---
 title: "2012.01.07 Breakfast"
-description: "<div id=\"attachment_3776\" class=\"wp-caption alignleft\" st\u5c54\u0765\u0460\u0255\u0445\u0401\u0434\u0608\u0255r&GG3VFv6GF6VEC3ssb#\u0196r673)^K[YY][HZ[XYKL\u0348]OHLL L M [H src=\"https://iquitagain.com/wp-content/u"
+description: "2012.01.07 Breakfast"
 pubDate: "2012-01-07"
 author: "Dale Sackrider"
 tags: ["Food Journal"]
 draft: false
 ---
 
-<div id="attachment_3776" class="wp-caption alignleft" st屔ݥѠɕхЁд؈ɕr&GG3VFv6GF6VEC3ssb#Ɩr673)^K[YY][HZ[XYKL͈]OHLLLM[H src="https://iquitagain.com/wp-content/uploads/2012/01/2|дԹѥvWB#Fc'"
+<div id="attachment_3776" class="wp-caption alignleft" style="width: 300px;"><a rel="attachment wp-att-3776" href="https://iquitagain.com/?attachment_id=3776"><img class="size-medium wp-image-3776" title="20120107_100544" alt="" src="https://iquitagain.com/wp-content/uploads/2012/01/20120107_100544-300x225.jpg" /> </a><p class="wp-caption-text"></p></div><br /> 

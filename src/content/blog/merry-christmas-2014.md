@@ -1,14 +1,25 @@
 ---
 title: "Merry Christmas 2014!"
-description: "P.F. Chang FULL mar\u0461\u0761\u0301\u0301\u0755\u0304$\u0365\u0200vFS##Bv'&\"F6&\"&Vc&GG3VFv\u02d8K][\u030cM]\\[\u070bY\\X\\^\u06d8HH\\[\u0708\\g>. I picked up a fancy pedometer called 12k's of Chr\u0475\u0461\u0301\u5545\u0230$\u0745\u0301\u047c\u0361\u0654\u0301\u0301v\u05d2W'6&V6&Bf\"FB&6R\u0420\u0425F"
+description: "Merry Christmas! Its the end of the year (already)! I hope your year has been full of family, friends, love, and life! And I hope you have made progress on your"
 pubDate: "2013-12-25"
 author: "Dale Sackrider"
 tags: ["Weight Loss Journal"]
 draft: false
 ---
 
-<h2><img class="alignright size-full wp-image-4050" alt="ͭͅфɌ輽եхѕнvG2#2"66Fr"vGF#"VvC#3R"YܜH\X\OB]H[وHYX\
-[XYJHHg hope your year has been full of family, friends, love, a$ԁٔɽɕ́ȁѹw2v2РФגV"2&VVgVbW2BFv26ۙY؜Y\ܚ[]ݙ\YX\[^H]؈gs me traveling a bit. The stress that changing jobs creat́䁥͔́ЁѼѡЂvfrFFVvF&Vrvg&f֖ǒBFW7Fr	H]OH[HX]X[H[H][[ȈYH'tps://iquitagain.com/weightlossjournal/can-i-eat-healthy-ݡɅٕѥЁݡɅٕձwFǒ&RV7W7W6Rf"B6rvVvB'WBvF	H\ܝو^HYH[[Z[KH]HY[XHtay focused on our health.
+<h2><img class="alignright size-full wp-image-4050" alt="skinnysanta" src="https://iquitagain.com/wp-content/uploads/2013/12/skinnysanta.jpg" width="180" height="305" />Merry Christmas!</h2>
+Its the end of the year (already)! I hope your year has been full of family, friends, love, and life! And I hope you have made progress on your fitness goals.
 
-When I started IQA, I was oٕȀ̰ЁѡЁ݅́啅́$ЁѥՔwF6VV'&FRvVvB72g&V'27BvRVvV7FyH\[\[۝0p\]^HZY[\ to my then current weight of 285lbs and went back to zeɼչ́и%Ё݅́ɕ͕Ёɕ́ȁrv#'2Fv2bF2&rРФ6vVBWf"IHH]OH[YH[T]Z]ȈYH΋\]Z]YZ[om/weightlossjournal/time-to-un-quit">P.F. Chang FULL marѡݡ́́ݕ̄$ͥȀvFS##Bv'&"F6&"&Vc&GG3VFv˘K][̌M]\[܋Y\X\^ۘHH\[܈\g>. I picked up a fancy pedometer called <a title="Fitbit I٥܁䁄ɕձȁЁ䈁ɕ輽եхrvVvF76W&fF&B&WfWr'&VwV"fBwW#FH]]ܘOO[HYH\HوZ\وH'itle="A boring post about my new Asics Gel-Super J33 shoëɕ輽եхݕѱͩɹɥvr7B&WBגWr672vV7WW"֣326W2#'Vr6\O^HYH\][[Y[Y\\[܈H'P.F. Chang Half Marathon, the Disney Princess Half Marathѡ]ɥȁ͠ݥѠ]Ʌѡѥѱ%r6FN(
-bFVR6&R&W76VBvFRF)YH΋\]Z]YZ[KZYڛ\[YZKX[gdo-it-then-you-can-be-impressed-with-me-too">12k's of Chrѵѡ́啅Ȱ$݅́Ѽٔ́́͡vגW'6&V6&Bf"FB&6RРХFvWFW"גvfRH]HY[[[X[X\H\و\MHgth a focus on healthy lives for us and our children. I'm ፥ѥѡЁݔЁٕЁѼɕ܁́ɽr7FWRגvfRF2V"W&R&֗6W9YBB]Y[H\HܙX]\[X But as we all know, its not how you start the race, its ܁ԁ͠5剔$͡ձɕѡѼ$хrvРФVfRRvFRbגW'6ff)]H\X\ۙH[NBB˞[]XKKatch?v=pb5hk7jDvvs
+My year has been full of ups and downs. I changed jobs after working at over 7 years and my new job has me traveling a bit. The stress that changing jobs creates in a family is of course a challenge, but add to that having to deal with being away from family and adjusting to <a title="Can I eat healthy while traveling?" href="https://iquitagain.com/weightlossjournal/can-i-eat-healthy-while-traveling">eating out while traveling</a> could certainly be an easy excuse for not losing weight. But with the support of my wife and family, we have been able to stay focused on our health.
+
+When I started IQA, I was over 300lbs, but that was years ago and I cannot continue to celebrate weight loss from years past while neglecting the present. Last month I reset my weight loss counter to my then current weight of 285lbs and went back to zero pounds lost. It was a reset and a refocus for me - and I'm 20 lbs down as of this morning!
+
+I signed up for the <a title="Time to un-Quit?" href="https://iquitagain.com/weightlossjournal/time-to-un-quit">P.F. Chang FULL marathon</a> (which is in 3 weeks!) and I signed up for <a title="2014 Warrior Dash Arizona" href="https://iquitagain.com/event/2014-warrior-dash-arizona">the Warrior Dash</a>. I picked up a fancy pedometer called <a title="Fitbit Review by a regular fat guy" href="https://iquitagain.com/weightlossjournal/fitbit-review-by-a-regular-fat-guy">the Fitbit Force</a> and I bought a couple of pairs of <a title="A boring post about my new Asics Gel-Super J33 shoes" href="https://iquitagain.com/weightlossjournal/a-boring-post-about-my-new-asics-gel-super-j33-shoes">running shoes</a>. My wife has even joined in, registering for the P.F. Chang Half Marathon, the Disney Princess Half Marathon, and the Warrior Dash with me. We ran the <a title="If I can do it… then you can (be impressed with me) too!" href="https://iquitagain.com/weightlossjournal/if-i-can-do-it-then-you-can-be-impressed-with-me-too">12k's of Christmas</a> this year, and I was able to shave 3 mins off my personal record for that race!
+
+Together, my wife and I have been calling December the start of our 2014 - with a focus on healthy lives for us and our children. I'm exciting that we might even get to read of few posts from Stephanie (my wife) this year here on IQA... No promises though.
+
+Its been a good start. A great start in fact. But as we all know, its not how you start the race, its how you finish. Maybe I should rename the blog to I start again? Nah.
+
+I leave you with one of my personal favorite Christmas songs - enjoy:
+
+httpv://www.youtube.com/watch?v=pb5hk7jDvvs

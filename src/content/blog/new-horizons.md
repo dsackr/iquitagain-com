@@ -1,12 +1,14 @@
 ---
 title: "New Horizons"
-description: "Wouldn't that be great? Something new on the horizon? \u009e$\u0701$\u077d\u0571\u0654\u047c\u0654\u037d\u0701\u0574\u0701\u0255wFWr7&Ff\"6rvVvB*'WBFwB)\\[HH\u06dbH]HH[YHX[H\u0648\u0348[[[d medium sized shirts that I have had for the las"
+description: "Wouldn't that be great? Something new on the horizon? I know I would love to have some new momentum, new direction, new inspiration for losing weight. But I don"
 pubDate: "2010-05-18"
 author: "Dale Sackrider"
 tags: ["Weight Loss Journal"]
 draft: false
 ---
 
-Wouldn't that be great?  Something new on the horizon? $܁$ݽձٔѼٔͽ܁մ܁ɕwFWr7&Ff"6rvVvB*'WBFwB)\[HHۛH]HH[YHX[Hو͈[[[d medium sized shirts that I have had for the last severa啅̸4(4)$Ёٕ܁ѡЁ$͕ȁѼչцvFrFR&V6f"גvVvB77VW2VF*vVWF0\Y0[\Z[^K]K0IHX]H'- I work out although its not consistent.  I've cycled,Ʌٕ݅ɕѱхѕѥ̺́r*FrFR&W7Bvf"RF6RvVvBv[HY][
-܈[ܙHXYX[K[[^HY]
-g.  I can work out for an hour and burn 500 - 1000 caloríЁ́ѱ̀ԁѕ́$յݥѡrРФvFW&R2WrwVrWrW6Wy\X[ۋ0][p\][۰\]H0H['d say that I want to lose weight like I want to play the ՝Ѽɕ܁ɕЁЁݽձЁЂvVVvF7GVǒWBFRFRBVff'B&WV&VBFX\\HX[K]X\H[ۜH^\[gth mp3's of great piano solos and think that could be me!
+Wouldn't that be great?  Something new on the horizon?  I know I would love to have some new momentum, new direction, new inspiration for losing weight.  But I don't.  Currently I only have the same dream of 36 inch pants and medium sized shirts that I have had for the last several years.
+
+I don't even know that I'm closer to understanding the reason for my weight issues (emotional, genetics, thyroid gland, just plain lazy, etc).  I'm active - I work out although its not consistent.  I've cycled, ran, walked, even recently started a martial arts class.  I think I know the best way for me to lose weight will involve dieting (or more specifically, changing my diet).  I can work out for an hour and burn 500 - 1000 calories but in as little as 5 minutes I can consume twice that.
+
+Anyway - there is no new 'umph', no new push, no new direction.  Not even the frustration is new!  I would say that I want to lose weight like I want to play the piano; Enough to dream of how great it would be, but not enough to actually put in the time and effort required to accomplish the dream... At least I can console myself with mp3's of great piano solos and think that could be me!

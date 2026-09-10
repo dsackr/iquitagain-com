@@ -1,23 +1,26 @@
 ---
 title: "My Slippery Slope of Dieting"
-description: "Have you ever been hiking? As a kid, I used to run arou\u0461\u077d\u0255\u0201\u0354 Q\u0254\u0745\u0301\u0461\u0302w&fRFB&F&VvFRvG2vW&RVBBi[[Y]^Z[[\u071d\u0648[Y\\]^Hother. I remember once while we were playing after a "
+description: "Have you ever been hiking? As a kid, I used to run around in the wooded area behind our house. There was this ravine that ran through the woods were I played, a"
 pubDate: "2009-12-13"
 author: "Dale Sackrider"
 tags: ["Tubbs' Challenge"]
 draft: false
 ---
 
-Have you ever been hiking?  As a kid, I used to run arouѡݽɕȁ͔
-Qɔ݅́ѡ̂w&fRFB&F&VvFRvG2vW&RVBBi[[Y]^Z[[ܝو[Y\]^Hother.
+Have you ever been hiking?  As a kid, I used to run around in the wooded area behind our house.  There was this ravine that ran through the woods were I played, and I often ran through it, playing all sorts of games with my brother.
 
-I remember once while we were playing after a rݕ$ѕѡѡɅ٥䁙wB6ƗVB*Bv6wBƖRG&rfW"6WFrBi[[[\[ۈHܛ[ۙ\[]\\[gd.  It was slow and obvious.
+I remember once while we were playing after a rainy week, I stepped on the edge of the ravine and my foot slipped.  It wasn't like tripping over something and finding yourself on the ground wondering what just happened.  It was slow and obvious.
 
-First my left foot slipЁ܁̸
-Qݡ$ɥѼɵwBג&vBfBFvW"w&VBvg&FRVFvR	H[][[H]Y[[YHX\Yg.  My left foot was still slipping toward the edge.
+First my left foot slipped just a few inches.  Then when I tried to firmly plant my right foot on to higher ground, away from the edge, I felt it sink into the mud and then slide back toward me.  My left foot was still slipping toward the edge.
 
-IɅȁȁ䁉ɅЁЁͱ݅䁙ɽvBfVBח6VbrFV&VBfW"G2FR6FRiH][K[[[H]Y0[\Y\gning more quickly.  I was falling into the ravine and thɔ$ѼɕЁаѡѕȁ$չ͕vƖr*FRVBv26fW&VBVBBBFR&GFHوH][HX][Y][0X[p[\YY
+I grabbed for near by branch, but it slipped away from me and I found myself now doubled over, hands on the side of the ravine, an inch into the mud.  Things started happening more quickly.  I was falling into the ravine and the more I did to correct it, the faster I found myself falling.  In the end, I was covered in mud and at the bottom of the ravine about ten feet below, luckily unharmed.
 
-The last two days, I have noticed that I have startedѥѱЁѕȸ
-$ٔѡЁєvBFRf&&Vf&RwfRf6VBFR&FRגWF0[[HY[HY[[و	ٝ[	IݙHݙ[gd a few last bites in, knowing that I was putting myself ЁձѼѡՙɅ͔$Ё݆vBF7FVFrРФFW"v&G2גfB2FVBۈH]Y[HY[^\[\[YK0[ZHhen I was a child, I am not going to panic.  Rather thanɅ䁅ɽչѕɔɔwFFRVBvvrF7FWfVFRFR6GVFXZH^HX[ۜH\H[X\]KBBY][Xgt the "I can make you thin" program has clicked with me lѡȁɽɅ$ٔ
-$ٕٔȁչѽr&Vf&RFBגFF7Fv2BFfB'WBFFR7IوX][ˈ0H]\[\^XH][[[ۘ[gating was before either.  Now armed with this new informѥ$ٕٔՍ͙ձɕͥѕѡѕхѥvVBBvB&Vf&R&VB"&WGvVVV2vVv6wB	[ܞKBBIݙH\YXH]H[H\[ۧ the first portion instead of the third and I've left fooٕєͥ$хѕѡɽɅȀr*fRWfW"&Vf&RFVBvFFR'GVG67BوX][ۙHԈ[\[HIݙH[^\\X][ both.  Now instead of saving the 'best' bites for last,$ЁѡЁͥ䁙Ёѕ́ЁՅ䁉wFR7B&FW2bFBVРФfR7F'FVB&w)[\]\K]\\H\[YH\HHY[H'can answer the toughest question anyone starting a new weЁ́ɽɅͬ]Ё́ѡ́ѥɖvB"*6wBFVRvBB2&WB$6RR	[]XY]YK]H[YH]XY0gy understanding of myself and my addiction is different. 
-$ѡѡЁЁЁѡɕwFRv&B
+The last two days, I have noticed that I have started eating a little bit faster.  I have the next bite of food on the fork before I've finished the bite in my mouth.  And when I feel the beginnings of 'full', I've shoveled a few last bites in, knowing that I was putting myself past full and into the stuffed range, because I didn't want to stop eating.
+
+In other words, my foot as landed in the mud and I feel myself starting to slide.  Unlike when I was a child, I am not going to panic.  Rather than grabbing blindly around me and stepping more and more into the mud, I'm going to stop, evaluate the situation, and make my actions from here deliberate.
+
+Something about the "I can make you thin" program has clicked with me like no other program I have done.  I've never understood before that my addiction was not to food, but to the act of eating.  I never understood exactly what emotional eating was before either.  Now armed with this new information, I have very successfully resisted the temptation to eat at night before bed or between meals when I wasn't hungry.
+
+I've pushed back the plate when I was still on the first portion instead of the third and I've left food on every plate since I started the program December 1st.  I have never before dealt with the opportunity cost of eating one food OR another since I've always just eaten both.  Now instead of saving the 'best' bites for last, I eat them first since my first bites might actually be the last bites of that meal.
+
+I have started many programs out there, but this is the first time where I feel I can answer the toughest question anyone starting a new weight loss program can ask - "What makes this time different".  I can't tell you what it is about "I can make you thin" that clicked with me, but I can see it clicked.  My understanding of myself and my addiction is different.  And I think that might just make all the difference in the world.

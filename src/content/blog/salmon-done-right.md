@@ -1,23 +1,35 @@
 ---
 title: "Salmon Done Right!"
-description: "[caption id=\"attachment_2117\" align=\"alignleft\" width=\"15\u0465 \u0245M\u0271\u0309t\ud8d0\udc61\u0255\u8f3d\u0739r6VR'&F6V&W2SSc##\u0196r673'6R[XZ[Z[XYKLLM\u0208]OH[\u06c8\u0718H\u038b\\]gitagain.com/wp-content/uploads/2009/02/bran"
+description: "[caption id=\"attachment_2117\" align=\"alignleft\" width=\"150\" caption=\"Brandon Searles\"] [/caption] By Brandon Searles I like to buy a nice salmon filet and I sli"
 pubDate: "2009-02-20"
 author: "Brandon Searles"
 tags: ["Weightloss Articles"]
 draft: false
 ---
 
-[caption id="attachment_2117" align="alignleft" width="15ѥ	ɅMɱ̉t񄁡ɕ輽ܹr6VR'&F6V&W2SSc##Ɩr673'6R[XZ[Z[XYKLLMȈ]OH[ۈܘH΋\]gitagain.com/wp-content/uploads/2009/02/brandon-150x150.jpɅݥѠlѥuРФ''&F6V&W0РУƇ"РФƖRF'W6Y[[ۈ[][HXH][YX\X]L[\s wide
+[caption id="attachment_2117" align="alignleft" width="150" caption="Brandon Searles"]<a href="http://www.facebook.com/people/Brandon-Searles/1059058629"><img class="size-thumbnail wp-image-2117" title="brandon" src="https://iquitagain.com/wp-content/uploads/2009/02/brandon-150x150.jpg" alt="brandon" width="150" height="150" /></a>[/caption]
 
-While the grill is heating up I lightly rub (gl锁ɕ䤁ѡͱ́ݥѠٔ9Ёͼѡ䁅ɔvV6r'WBvV6fW&VBRFRW72FR&V6"F\Y\[[]\۸&]Z^
-Z
-H'it creates a seal sort of to keep the moisture in. I creaѕѡ́́хѥѼѡ݅$͕ѼЁݡvv2FRFfFVBF6FVFF6VB	\Y]\]XYH8'ݙ\Hܚ[8'H]܈'and markings. Second, oil carries flavor so when it cooksЁձ́ѡٽȁѡ͕ͽ̰ѡrBFRG6VbFFRf6РФ7B7F&Vf&RIH[YH\X\ۈ]]H[΃B[BOOLemon pepper (a given)</li>
-	<li>Fresh pepper (best fromɥȤ𽱤4($MͅЀѥ͕vN(
-gfW'ƖvBƓРƓv&Ɩ26BvF'6WIY[]H]\
-OOBOO\]X\\HXܙ]' ingredient…Celery Salt</li>
-	<li>Lemon juice too but Ё̸݅-́䁵%ͼeЁwB6'&VBvvFBƖRB&WGFW"266VBF]\H[H\Y][Y\OB[B^H' them babies on a nice hot grill. I close the lid and untЁ́ͽݡЁɕٕȸ	ѡ́$ѡѕȂvW"26VBVVvFBB2vW"FR&r6܋][[]HH]H[ݘ[ۈHY'. Now it’s time to flip. Flip is tricky and should be dݥѠͥ锁ձ́ѡ͠ݡݥvV6RfWF227GVǒFW"&VVfBbFRˈ۸&]X]H]ۙۈ\YKH\gs a little more than ½ way done when you flipped it and Ё́ȁ܁ѕ́ѕȁԁɕٔЁɽѡvR6F֖r2WfW'FrbgFW"֖WFR"GvF\H\[[[H[\
-[H[\]Xer slices usually) you can do a ¼ flip and get those sid́ѽ4(4)]Ѽձѡ́ѱvrvVVvw2&RF^(
-fN(	2&VǒWFR'WBf)Yx)H]HX\YZH[HٙY
-[HYX[ight) before I think they are perfect to eat. This makes ѡՅəЁѼЁѡѥѡ䁝ЁѼѡv&Rv6v2f"2F6FB7&wW2B	HXHY]]
-]YH]\[[[ۋ[Hgnt of natural can sugar)….ahhhhhhhhhhhhhhhhhhhhhhhhhh yյ4(4(4(4)	ɅMɱ́́іv66w&FW"f"&vRf6f&'F'WB'	ۚY[ۈ\HXۙYܙYHX[[\H]g Karote, and his hobbies include all things health relateՑݽɭ́ɥѥ
-!́ɅѥvFRW'6ǒ*R6frf6V&ܙYH˙XX˘K[KМ[ۋTX\\LNL'58629" target="_blank">here</a>. - Dale
+By Brandon Searles
+
+<hr />
+
+I like to buy a nice salmon filet and I slice it into pieces about 2-3 fingers wide
+
+While the grill is heating up I lightly rub (glaze really) the slices with olive oil. Not so they are drenching but well covered none the less. The reason or this is two-fold. First, oil and water don’t mix (duh) so it creates a seal sort of to keep the moisture in. I created this as an adaptation to the way I used to do it which was to make a tin foil tent to cook them in. I ditched this method as it lacked the “over the grill” flavor and markings. Second, oil carries flavor so when it cooks it kind of pulls the flavor of the seasonings, the flame, and the oil itself into the fish.
+
+Last stop before the flame is to season it with the following:
+<ul>
+	<li>Lemon pepper (a given)</li>
+	<li>Fresh pepper (best from a grinder)</li>
+	<li>Sea salt (optional, if used go light…very light)</li>
+	<li>Garlic Salt with Parsley (a definite must)</li>
+	<li>Last but not least is the secret ingredient…Celery Salt</li>
+	<li>Lemon juice too but not always. Kind of depends on my mood. If so, don’t get carried away with it. I like it better as an accent that gives a tangy zest sometimes</li>
+</ul>
+Next, we drop them babies on a nice hot grill. I close the lid and until it is somewhat colored over. By this I mean the outer layer has cooked enough that it is no longer the raw color. It can still have a little pink oval on the top though. Now it’s time to flip. Flip is tricky and should be done with a good size spatula as the fish when done will become flakey. This is actually another benefit of the oil too. Don’t leave it too long on this side. The fish was a little more than ½ way done when you flipped it and it cooks for a few minutes after you remove it from the flame so timing is everything. If after a minute or two there is still pink in the center (when I end up with thicker slices usually) you can do a ¼ flip and get those sides done too.
+
+When to pull them off is a little like asking when eggs are done…it’s really up to you but for me…I have learned to take them off right (and I mean right) before I think they are perfect to eat. This makes them usually perfect to eat by the time they get to the table. I will also go as far as to say that asparagus and a nice sweet potato (with some butter, cinnamon, and a hint of natural can sugar)….ahhhhhhhhhhhhhhhhhhhhhhhhhh yummmmy!
+
+*******************
+
+Brandon Searles is a technical writer for a large finicial firm, by day, but by night, Brandon is a second degree black belt in Shuri Ryu Karote, and his hobbies include all things health related including workouts and nutrition.  He is an insperation to me personally.  You can follow him on Facebook <a href="http://www.facebook.com/people/Brandon-Searles/1059058629" target="_blank">here</a>. - Dale

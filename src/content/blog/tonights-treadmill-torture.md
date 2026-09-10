@@ -1,35 +1,44 @@
 ---
 title: "Tonight's Treadmill Torture"
-description: "Dale and I are trying to change the way we live. We are\u0401\u0465\u0201\u024d\u0365\u0754\u0254\u0461\u027d\u0301vrWr\u0196fW7GRFvWFW\"**gFW\"V'2b&B&I[Y^\\\\][^\\X\\K]H[how my children a better way. &nbsp; A week ago I "
+description: "Dale and I are trying to change the way we live. We are not dieting or exercising; we are in the process of making a new lifestyle together. After years of bad "
 pubDate: "2014-01-27"
 author: "Stephanie Sackrider"
 tags: ["Weight Loss Journal"]
 draft: false
 ---
 
-Dale and I are trying to change the way we live.  We areЁѥȁɍͥݔɔѡɽ́vrWrƖfW7GRFvWFW"**gFW"V'2b&B&I[Y^\\][^\X\K]H[how my children a better way.
+Dale and I are trying to change the way we live.  We are not dieting or exercising; we are in the process of making a new lifestyle together.   After years of bad habits and bad excuses; its not always easy.  But I want to show my children a better way.
 
 &nbsp;
 
-A week ago I r䁙Ѓ
-􁵅ɅѡѡЁ䁉Ʌ饹̆|*FR7BbF22&VVfVBvFFRvRf֖ǒ	][]\ܜXHY]\[[[Z[[d feeling like we’ve been hit by a MAC truck.  I’m gՕͥݔ͔ٔѡԁݥѠ剔ͦvFRb'&6F2*'WB(	W7BBF7F")[[H\K^H\ؘ[\]^H܈H\]\['days of it, so I took care of three little sick ones by m͕Ȁ̸́4(4(4(4)1́ѡЁ́ɖrFRfRBגW6Rv26VBFFVvR66VG7Yݙ[\[YHYZ[][]^H]\HY['l the packing and prepping that it takes.  Let me say, íЁѼ́ɅЁݡȁ́vr*6f"FRWB2F2W&Vf&Rr*	Y[HۛYK\\YH܈YKH[HH[ܛ[ person.  I prefer to stay up at night and sleep in.  Ieٔ݅́ݥ͡$݅́ɹͽݥ͡ѡwB6VBfR&6VWGFW&'WBF2F22i܈Y\[]\^H][HܛX[g is a huge feat by itself with out adding the other thinǵݥѠл
-ѕȁѥ$ݽɭݽɭw&BB&VVw&72fW7FfגfVWBFBvWGFY[ZYY[[][YZ[H^gy.
+A week ago I ran my first ½ marathon and the next day began craziness!  The last 6 days has been filled with the whole family having fevers, horrible coughs, never ending whinnying and feeling like we’ve been hit by a MAC truck.  I’m guessing we all have a bad case of the flu with maybe a side of bronchitis.  But I’m just a mom not a doctor. J  In any case, my husband was away for the first several days of it, so I took care of three little sick ones by my self for 3 days.
 
 &nbsp;
 
-Why am I mentioning all of this when the Ё́́ͅЁɕѽɔ
-͔ѡɰrF2vvVBfRVVBFRf"ff'2bY܈XH[YۘHX]Hܚ]BB
-
-Instead of an Elephant Ear, I packed a lunch box of K͡Ʌ̰ɥ́Ʌ́Ѽٔȁ͹̻
-t6'&VvBvFW"vFR*WBח6Vb6RH܈[]HZ\YBBBBHXYH'some great choices but I know this is a work in progress.
-=ѡЁа$ݕЁѼɅw"FW"**FRw&VB6BBFVfVBגH]وܙY[YY\HݙNKXYK'zucchini, green beans.  I felt great.
+Less then 24 hours before the flu hit my house, I was asked to do a huge Scentsy event this same weekend.  So even with my fever, I did all the packing and prepping that it takes.  Let me say, its not easy to label papers straight when your head is spinning.  So for the next 3 days, I am up before 7 am.  If you know me, this is huge for me.  I am not a morning person.  I prefer to stay up at night and sleep in.  I’ve always wished I was a morning person and wished that I could have a normal sleep pattern but this topic is for different blog post.  Lets just say that 7am normally is a huge feat by itself with out adding the other things with it.  And after getting up, I worked and worked hard at a Bluegrass Festival on my feet all day; not getting to bed till midnight and doing it all again the next day.
 
 &nbsp;
 
-I wenЁѼѡՙЁЁɽɽݹͽv6&&W"B6R'&VBVFFr*F(	Bv''F(	]X][]H]HH]HۛHYۙH\g small bite of each the desserts.  And it didn’t take 
-)Ѐ́ѕ́$Ёͅy&VV&W"r6BfVBvFFRf'7B6S(	(	řx'H8'[HY[Z\\XH[ܛx'CBB';
+Why am I mentioning all of this when the post says its about treadmill torture?  Cause the girl 6 months ago would have enjoyed all the fair flavors of her choice and not thought once about a work out.
 
-I had thought several times throughout the day that $ո
-9܁ѕȁȰ$Ё͕ɅЂvWrvBBF&RFR*7F'BFG&VBBBG'I[^H[]و]BBY\[\]KY are to be taken care of and Dale is going back out.  I ܁́ɔ
-$ձЁѡͱѡЁ$;r&VǒvB*6VBfVrWBBvF66RGb*'WB	]YY\^HZ[][HH0HX\]ۈx&]Hۛg had one 3 mile walk.  So almost in auto mode, I find thЁ'eɅݽɬЁѡ́չ̸͡6pТf'7РФrW7BFRגfVWBFG2G)][YHܘ^KY[X܈^\x&[H\Y8)Xg this run is torture.  The run, probably one of the tougЁѥЁЁ$Ёл
-%Ёr6vB*R֖W2FW#(	&WGG&VBbRHZH\Hx&[HXYYHZH\Y\[H]Xh better.
+&nbsp;
+
+Instead of an Elephant Ear, I packed a lunch box of Kashi crackers, berries and oranges to have for snacks.  I also brought water with me.  I let myself pick one place for lunch at the fair though.
+
+&nbsp;
+
+Now I made some great choices but I know this is a work in progress.  On the last night, Dale and I went to Golden Corral for dinner.   I made a great salad and then filled my plate with lots of green veggies I love; broccoli, cabbage, zucchini, green beans.  I felt great.
+
+&nbsp;
+
+I went back to the buffet and got a roll, a brownie, some peach cobbler and some bread pudding.  Don’t worry I don’t eat all that.  I ate the roll but I only had one very small bite of each the desserts.  And it didn’t take long.  Just 3 bites and I looked up at Dale and said, “Remember how I said I felt with the first place?” “Ya” “Well, now I feel miserable and gross!”
+
+&nbsp;
+
+I had thought several times throughout the day that I needed a run.  Now after dinner, I felt miserable but knew what had to be done.  I start to dread it and try to talk my self out of it.
+
+So after an hour drive, kids are to be taken care of and Dale is going back out.  I had a few choices here.  I could get the sleep that I so really want.  I could veg out and watch some tv.  But it plagues my mind that since the ½ marathon I’ve only had one 3 mile walk.  So almost in auto mode, I find that I’m grabbing work out clothes and my running shoes.
+
+&nbsp;
+
+Now, I just ate, on my feet all day, kids driving me crazy, been sick for days, I’m so tired…. Ya this run is torture.  The run, probably one of the toughest in a long time but yet I cant explain it.  It feels soooooo good!  5 miles later; I’m pretty proud of me.  I like where I’m headed.  I like this lifestyle much better.

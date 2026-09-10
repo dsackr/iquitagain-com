@@ -1,15 +1,16 @@
 ---
 title: "I respect the marathon..."
-description: "I read a blog post tonight that inspired me - from a slow\u0201\u0579\u0201\u03559I\u0361\u0265\u0455\u0301\u0201\u0400r&Vc&GGFV\u059776V&F&w7B6#Rf]YKXXZK\\\\X[X\\]\u06cb[Y]HHX'- I Respect the Marathon \" that after seeing a"
+description: "I read a blog post tonight that inspired me - from a slower runner like myself. Nancy Rusho writes in her post \" View from the Back - I Respect the Marathon \" t"
 pubDate: "2011-05-22"
 author: "Dale Sackrider"
 tags: ["Goals", "Running"]
 draft: false
 ---
 
-I read a blog post tonight that inspired me - from a slowȁչȁ͕9I͡ɥѕ́ȁЀr&Vc&GGFV֗76V&F&w7B6#Rf]YKXXZK\\X[X\]ۋ[Y]HHX'- I Respect the Marathon</a>" that after seeing an adverѥ͕
-չȝ́饹՝ѥѡЁͱݕȁwVW'26WFrF\*w'VVƖ|*#b"֖R&6RvW&R6	Hܛ[H[HٙHX]\H[ZHHhould somehow be ashamed of her running.
+I read a blog post tonight that inspired me - from a slower runner like myself. Nancy Rusho writes in her post "<a href="http://themissoulamarathon.blogspot.com/2011/05/view-from-back-i-respect-marathon.html">View from the Back - I Respect the Marathon</a>" that after seeing an advertisement in a runner's magazine suggesting that slower runners completing the grueling 26.2 mile race were simply crossing a line off a bucket list, she felt like she should somehow be ashamed of her running.
 
-Rusho goes onѼͅѡЁٕѡ՝͡ɽ́ՍwBƗ7BWfW'R6VB&R&W7V7FVBf"frw&VRIH[[HX\]ۈX]\HHY[ZHH[gdd to the sport - I'm running because I feel the sport caѼ䁱ѕɅ丁$ٕȁݕЀ$ٔvRbf6r&FW72FRW'29Z[Hۉ[\[\[\]H[gnish and I am proud of what I have accomplished so far.
-4)啅ȁ$ձЁЁݕЁѼɽ܀r'2FF&V6W6Rb'VrfRfVBח6VbfW&ۙ\[H[܈H\[YH[^HY[Yg I feel I could actually lose weight significant enough tЁѼѡ
-ѕ4(4)%́ͅvR&F27&RGvG2b'VW'2F6RFBܙH\][[H]\H\][H[['miles we found room for them all.
+Rusho goes on to say that even though she did cross a line off a bucket list, everyone should be respected for moving. I agree! I'm not running a marathon because I feel like I could add to the sport - I'm running because I feel the sport can add to my life... literally. I'm over weight - I have no hope of finishing a marathon in less than 5 hours - most likely won't finish in less than 6 hours, but I will finish and I am proud of what I have accomplished so far.
+
+A year ago, I could not get my weight to drop below 285 lbs. Today because of running I have found myself hovering around 265 lbs and for the first time in my adult life I feel I could actually lose weight significant enough to put me into a healthy category.
+
+Its been said before - Marathons inspire two kinds of runners - those that are competing and those that are completing - and in 26.2 miles we found room for them all.

@@ -1,11 +1,11 @@
 ---
 title: "#200: Only 200 days left!"
-description: "I haven't blogged in a while, but today I noticed ther\u0254\u0301\u0401\u0579\u0465$\u043b $\u0271\u0301vvFW\"WB6WBFv27BV#v6WFR X\\]\u06c8H[\\[H\u06c9\u06db\u02cb]H[H'hopeful!"
+description: "I haven't blogged in a while, but today I noticed there are only 200 days left until I'm 34. Can I be 52lbs lighter next Sept than I was last year? Will I compl"
 pubDate: "2011-03-10"
 author: "Dale Sackrider"
 tags: ["A year on purpose"]
 draft: false
 ---
 
-<p>I haven't blogged in a while, but today I noticed therɔ́Ёչѥ$л
-$ɱ́vvFW"WB6WBFv27BV#v6WFR	X\]ۈH[\[Hۉۛˋ]H[H'hopeful!</p>
+<p>I haven't blogged in a while, but today I noticed there are only 200 days left until I'm 34.  Can I be 52lbs lighter next Sept than I was last year? Will I complete a marathon by then as well?</p>
+<p>I don't know...but I am hopeful!</p>

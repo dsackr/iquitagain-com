@@ -1,15 +1,20 @@
 ---
 title: "#261: Run, Walk & Roll 5K/10K with Ali Vincent from the Biggest Loser"
-description: "<img class=\"alignleft size-medium wp-image-2911\" title=\"1\u0255\u0571\u0308\u024c\u8f3d\u0565\u0445\u0455\u043dw2#&W7VG23#SBr\"C\"\"vGF#3\"VHM\u03d5^H\\H\u06d9]\\H^K0H\\Ygarly, leaving the house around 7:30am to pick up my"
+description: "Today was a long but happy day. I started early, leaving the house around 7:30am to pick up my sister for our first race together! Of course, it wasn't exactly "
 pubDate: "2011-01-08"
 author: "Dale Sackrider"
 tags: ["A year on purpose"]
 draft: false
 ---
 
-<img class="alignleft size-medium wp-image-2911" title="1ɕձ̈Ɍ輽եхѕнw2#&W7VG23#SBr"C""vGF#3"VHMϕ^H\Hۙ]\H^K0H\Ygarly, leaving the house around 7:30am to pick up my sisteȁȁȁЁɅѽѡȄ
-=͔Ё݅͸Ёv7FǒFvWFW"6R&FRVB&FR'WBI\[H\]H\\K0[H[[H'the Biggest Loser was also there - she ran the 10k in 01:Ը$ɅЁĸ鼀ALѥ݅́vǒCBBb&֖W2FR&6Rv2rBbCB֖\CBBY\HXKH\]]^H\]'his daughters 1 year birthday party - then I had to run t͔́%Pݡ́YIdչՅrR*gFW"FB7wVr'גWWw2&'FF'Gۙ[HQ]ˋBB^H\Z[S]HY\Hery same one that got me started on this running thing - ٕѼѽݸɽ5<
-M$݅́ѼݥѢrFR&W7BbFRf֖ǒf"FW"*vR&Rr)[܈[ܜ[H[Y[HK̈X\]ۈ^'Sunday!!!
+<img class="alignleft size-medium wp-image-2911" title="10k-results" src="https://iquitagain.com/wp-content/uploads/2011/01/10k-results-300x254.png" alt="" width="300" height="254" />Today was a long but happy day.  I started early, leaving the house around 7:30am to pick up my sister for our first race together!  Of course, it wasn't exactly together - she ran the 5k and I ran the 10k - but it was still a blast to have her there.  Ali Vincent from the Biggest Loser was also there - she ran the 10k in 01:13:15... I ran it in 01:11:11... :o (my GPS time was actually 01:08:44 at 6.2miles - the race was long at 6.44 miles)
 
-<img class="alignright size-thumbnail wp-imaȈѥѱ͹|ЈɌ輽եхv6w6FVBWG2#6###SBYMLȈ[HZ[H[Y\ȈYHMLZYHMLσB
-The 10k today?  It was fun and I feel I did a good jobɕɑٕѡ՝$݅́ɽɕٕͥͱݥvFv7BWfW'֖R*vB7W&RrvFf"	H[X\]ۈ^YZˈ0YHY[0^]\gd - this is the fastest I have ever run and I can tell m䁉ѽѥ4(4)QɅѡ́ݕݥіw&W7Fr
+After the race, I got to visit with my brother at his daughters 1 year birthday party - then I had to run to a clients house on an IT job (which is VERY unusual for me).  After that I swung by my nephews birthday party and then the BIG news...
+
+My Brother-in-Law - yes, the very same one that got me started on this running thing - moved into town from MO.  So I was able to join him with the rest of the family for dinner.  We are planning a run for tomorrow and we enrolled in the 1/2 marathon next Sunday!!!
+
+<img class="alignright size-thumbnail wp-image-2912" title="snap20110108_120254" src="https://iquitagain.com/wp-content/uploads/2011/01/snap20110108_120254-150x150.png" alt="Mile Times" width="150" height="150" />
+
+The 10k today?  It was fun and I feel I did a good job regarding pace, even though I was progressively slowing down almost every mile.  I'm not sure how I will do for the half marathon next week.  Right now I feel exhausted - this is the fastest I have ever run and I can tell my body took a beating.
+
+Training this week will be interesting...

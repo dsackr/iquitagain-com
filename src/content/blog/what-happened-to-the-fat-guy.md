@@ -1,23 +1,28 @@
 ---
 title: "What happened to the Fat Guy?"
-description: "[caption id=\"attachment_2252\" align=\"alignleft\" width=\"10\u0465$]%109=PEU%Pt\ud957\udd5c\u0365\u9535\u0571vvR##S\"\"FFS'&W7VFGG6\"7&3&GG3VFv\u06cbKX\u06dd[\\Y\u030cK \u0719\\[\\X[\u0208['t=\"I WILL NOT QUIT!\" width=\"100\" he"
+description: "[caption id=\"attachment_2252\" align=\"alignleft\" width=\"100\" caption=\"I WILL NOT QUIT!\"] [/caption] Ok, when I started this blog at the end of last year I was po"
 pubDate: "2009-04-18"
 author: "Dale Sackrider"
 tags: ["Weight Loss Journal"]
 draft: false
 ---
 
-[caption id="attachment_2252" align="alignleft" width="10ѥ$]%109=PEU%Pt񥵜ͥ锵ձvvR##S""FFS'&W7VFGG6"7&3&GG3VFvۋKX۝[\Y̌Kܙ\[\X[Ȉ['t="I WILL NOT QUIT!" width="100" height="100" />[/captiont4(4)=ݡ$хѕѡ́ЁѡЁ啅rv27FrfWrFW2vVV6RvVV27FVBYݙ\H^HH]ݙ\H\]YZ
-]Y[ݙ\ a month) I have slowed down to almost less than once a w
-MݡЁѼѡЁ䁅ЁѡѡȁvbF2vV'6FSРФ6G&'FFRRRGVBFy]\KH]HURUHYZ]IH][XHgth the diet - late night snacking over the last month hasɕ͕Ё
-	ЁѡɕݕͽrFB2fƖrB6VRFB2VB2BV7Bۈ^H[[ۋٛ[IHZ[[H]IH]Z]'ing.
+[caption id="attachment_2252" align="alignleft" width="100" caption="I WILL NOT QUIT!"]<img class="size-full wp-image-2252" title="resultnottypical" src="https://iquitagain.com/wp-content/uploads/2009/04/resultnottypical.jpg" alt="I WILL NOT QUIT!" width="100" height="100" />[/caption]
 
-Over the last 15 years of my life, I spent 11 or ȁѡݕл
-1Ё啅Ȱ$Ёݕл
-t7B7B#'27BV"*F2V"7BfWr	[ܙH[][YHYYH]H[و˰ But right now, I've put a few back on.
+Ok, when I started this blog at the end of last year I was posting a few times a week - some weeks I posted every day - but over the last few weeks (ok, its been over a month) I have slowed down to almost less than once a week.  So what happened to the fat guy at the other end of this website?
 
-I am building͍ЁݡЁѕѼɝЁ́ѡЁЁцvW26&W2F'VBW66RBbBB7&V6VI^HY]^HH[]H[H[ܚY\H'e fat wrapped around every part of my body and I would haٔѥՕѼ͔ݕи4(4)$Ѽѡ崁Ѣw&VRF2vVVrBvFrג6rFW'9^\˰IHZ[YH\X]]H\ܛX['Saturday routine as a family as well.  My long term goaĺѼ͔́ѥ䁅Ё䁥ݕЁȁѡrf'7BFRגƖfR'WBFB2rFW&vРY]Z\YH]HYX\X\\][g it.  I know there is potential here to completely quit չȁѡե͔хЁͱܜ$Ё$զvGb7&76rFBƖR&RF6RfW"FR7BfYYZH]IH]Z][˰^H\\ۈ[['the direction of my life.
+Contrary to the name you typed in to get here, I have NOT QUIT.  I admit I'm having trouble with the diet - late night snacking over the last month has really set me back.  But the difference between someone that is failing and someone that has quit is, at least in my opinion, profound.  I'm failing - but I'm not quitting.
 
-If I focus on the end goal IЁ͍Ʌ́ɽ$ٔvWfW"FRF2&Vf&R*'WBbf7W26vrגFܙX[ۈHH[YH\[[H[Y\[Hgnd goal in sight.  Six weeks ago, I wasn't working out aЁ܁$ٕȁٔݕ́Ѽѡɕ́ݕvw&B*FvG&fR7BFW6R6'BVFۜۈ^H^Hܚ]H[[XH' before I go to work.  And I'm taking my five year old sȁѡ͔$Ё݅Ё䁍ɕѾrV&rF&RfBg&RvL*FVFV&r	H]BB]X]Hۏ\'han the weight gains which are enough to discourage me frɥѥѡ͕ٕ̀$ٕٔɑɥٔЂwv&FVǒגvV'6FR'W6W722&VV'W6W"FWfY܋[^H[\\YX[YHHܙKYܛ['riority.  In short, I'm too busy!  But I honestly feel ѡЁեѥѡ́́ѡͅѡ́եѥ䁒vWBB&Frג2FƗfRVFW"ƖfR*9H[۝[YHY]^H[HHX\Y]gng worth reading in the process!
+Over the last 15 years of my life, I spent 11 or 12 of them gaining weight.  Last year, I lost weight.  I lost almost 20lbs last year.  This year, I lost a few more pounds putting me briefly at a total loss of 23lbs.  But right now, I've put a few back on.
 
-It was a comment fromɕȁԁѡЁɽٽѼɥєѡ́w7BRwW2FRFffW&V6R*V6RfVVg&VRI[Y[ۈ^HYHۈXX[]\'and send me an email everyonce and a while!
+I am building muscle but what many people tend to forget is that it takes calories to build muscle - and if I had not increased my diet, my body would have found those calories from the fat wrapped around every part of my body and I would have continued to loose weight.
+
+I am going to the gym three days a week now and I'm taking my son hiking on Thursdays.  I'm trying to add a cardo activity to our normal Saturday routine as a family as well.  My long term goal is to loose 150lbs putting my at my ideal weight for the first time in my life - but that is a long term goal.
+
+If it takes me five years to accomplish that goal, so be it.  I know there is potential here to completely quit under the guise of 'taking it slow' - and I admit I'm quilty of crossing that line more than once over the last few weeks - but I'm not quiting.  My focus is on changing the direction of my life.
+
+If I focus on the end goal I get discouraged - its a long road ahead of me and I've never done this before.  But if I focus on changing my direction - I can see results now while still keeping the end goal in sight.  Six weeks ago, I wasn't working out at all - now I'm over five weeks into a three days a week gym habit.  A month ago I drove past these short mountains on my way to work, but now I stop and climb to the top before I go to work.  And I'm taking my five year old son along for the hike because I don't want my children to learn how to be fat from me, I want  them to learn how to be fit.
+
+So what about the blog slow down?  Other than the weight gains which are enough to discourage me from writing all by themselves - I've been in overdrive at work lately, my website business has been busier than ever, and my schooling has started to became a fore-ground priority.  In short, I'm too busy!  But I honestly feel that quitting this blog is the same thing as quiting my diet and abandoning my plans to live a healthier life.  So I will continue to plug away and I hope publish something worth reading in the process!
+
+It was a comment from a blog reader like you that provoked me to write this post - you guys do make a difference!  Please, feel free to comment on my blog, follow me on facebook and twitter, and send me an email everyonce and a while!

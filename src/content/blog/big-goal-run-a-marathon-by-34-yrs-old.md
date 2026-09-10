@@ -1,13 +1,18 @@
 ---
 title: "Big Goal: Run a Marathon by 34 yrs old"
-description: "This seems like a pretty straight forward goal, right? \u1355\u0438\u0701$\u0245\u0430\u0701$\u0254\u0430\u0701trvFrvV*BB24%C*WG26VSB[BOOXYX8$[HX\\]\u06c8\\]\\XYic Measurable \u2013 well, I can measure the end \u0255\u0571\u0430\u0401\u0701\u047c$\u0254"
+description: "This seems like a pretty straight forward goal, right? Except... how do I track it, how do I measure it, how do I know I'm doing well? Oh, and it is SMART? Lets"
 pubDate: "2010-10-19"
 author: "Dale Sackrider"
 tags: ["Running"]
 draft: false
 ---
 
-This seems like a pretty straight forward goal, right?  ፕи܁$Ʌа܁$ɔа܁trvFrvV*BB24%C*WG26VSB[BOOXYX8$[HX\]ۈ\]\XYic</li>
-	<li>Measurable – well, I can measure the end ɕձаЁ܁Ѽ$ɔɽɕ𽱤4($ɕvf\*W2#b"֖W2f"7B3"wWfW'*ܙ\]OOBOOX[\X8$H[H\ۙgs I train for the next several months</li>
-	<li>Timely L
-MѕȀѠā́Ѡѡ𽱦sУVФBf"ג$"f,*66VF&ƗGiHYܙYY[]^H\Z[S]HYX\Ho that should help.
+This seems like a pretty straight forward goal, right?  Except... how do I track it, how do I measure it, how do I know I'm doing well?  Oh, and it is SMART?  Lets see:
+<ul>
+	<li>Specific – Run a Marathon is rather specific</li>
+	<li>Measurable – well, I can measure the end result, but how to I measure progress?</li>
+	<li>Aggressive - Yes - 26.2 miles for an almost 300 lb guy, very aggressive</li>
+	<li>Realistic – I think so - as long as I train for the next several months</li>
+	<li>Timely – check.  September 26th, 2011 is my 34th birthday.</li>
+</ul>
+Oh - and for my "A" for accountability - I have agreed to run with my Brother-in-Law a year from now, so that should help.

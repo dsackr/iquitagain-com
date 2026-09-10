@@ -1,14 +1,18 @@
 ---
 title: "Can I eat healthy while traveling?"
-description: "<img class=\"alignleft size-medium wp-image-3972\" src=\"htt\u8f3d\u0565\u0445\u0455\u043d\u033c\u033c|sSc#3##Rr\"C##3#Sc#\"vGF#3\"VyHH\u03d2H\\^\\[\\]Y\\[\u06c8[H[YKX]gse I travel for work. When I'm on the road, I'"
+description: "I ask myself this question all the time, because I travel for work. When I'm on the road, I'm on a company expense account and appetizers, steak dinners, and de"
 pubDate: "2013-10-30"
 author: "Dale Sackrider"
 tags: ["Weight Loss Journal"]
 draft: false
 ---
 
-<img class="alignleft size-medium wp-image-3972" src="htt輽եхѕн̼̼|sSc#3##Rr"C##3#Sc#"vGF#3"VyHHϒH\^\[\]Y\[ۈ[H[YKX]gse I travel for work. When I'm on the road, I'm on a comp䁕͔չЁѥ̰ѕ̰w76W'G2&R'BbFRFV6WFW2vVFW'Fr)\[\\\Y][Y\IHHۙHZ[[\Z[Y' and often I don't get to pick the restaurant. So how cou$ͥ
-х
-ѡݡѡ͔ɍյхs𠤒fVBג7vW"'Fr7FW&6BrIHX]][IHۈ^H[YHH\HH[ۉind myself making healthy choices, but for a different reͽ]ݥȁѡ́ݔɔѥЁݥѠwFR6RG2B&ǒ6Rvf"w&VB6I[][[]\H[Y\Hٝ[X[Hnce you consider the meat, cheese, caramelized walnuts, aɕ̸ͥ()Qɕͽ$ЁЁѡݡ$rRFVח6Vb2&V6W6R6R6FR&W7FW&[[ݙHHY\KX[[\[X]\Hو'my <a href="https://icloudhospital.com/article_detail/hemɡ̵̵٥̵ɽеѽ̈ɡw2G&VFVCvVgBvFC"6Rb6V&W&rYXHH[H\[\YH^Z[܈U\g is where I found my help when I'm on the road.
+<img class="alignleft size-medium wp-image-3972" src="https://iquitagain.com/wp-content/uploads/2013/10/20131029_115628-300x225.jpg" alt="20131029_115628" width="300" height="225" />I ask myself this question all the time, because I travel for work. When I'm on the road, I'm on a company expense account and appetizers, steak dinners, and desserts are part of the deal. Sometimes I'm entertaining business partners, sometimes I'm the one being entertained and often I don't get to pick the restaurant. So how could I possibly stay healthy while in these circumstances?
 
-I'm not 她ȁиQ䁥̸Mݡ䁹ЁٔѡɕvRWfW'FrFwBvBBfRFVFBFRFw2	ˈIH^Z[܈]Y\H[]HY\f steamed veggies with my salad. And when I can pick the ́ѡɔͅȁȁ()Qɔ́䁲wV6g&FR66l:rFR7FW"G&2ܙ[]H\وX[HX\]]\ۈ'he positive here! :)
+I found my answer by taking a step back and looking at how I eat out when I'm on my dime - where I also don't find myself making healthy choices, but for a different reason. When my wife or others we are eating out with pick the place, its not normally a place known for great salads and even when it is, the salads are often not healthy once you consider the meat, cheese, caramelized walnuts, and dressings.
+
+The reason I don't eat healthy when I'm at home, I tell myself, is because once I ask the restaurant to remove the cheese, chicken, and dressing because of my <a href="https://icloudhospital.com/article_detail/hemorrhoids-facts-viewpoints-from-expert-doctors">hemorrhoids treatment</a> - I'm left with a $12 place of iceberg lettuce! And I just can't justify paying for THAT. Now here is where I found my help when I'm on the road.
+
+I'm not paying for it. The company is. So why not have them remove everything I don't want and have them add the things I do. I'm not paying for it, so yes I will have two sides of steamed veggies with my salad. And when I can pick the place, is there a salad bar near by?
+
+The picture is my lunch from the company café - I know the Monster drinks aren't at the best of healthy choices, but lets focus on the positive here! :)

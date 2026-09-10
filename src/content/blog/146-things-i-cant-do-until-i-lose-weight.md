@@ -1,10 +1,21 @@
 ---
 title: "#146: Things I can't do until I lose weight"
-description: "#146: Things I can't do until I lose weight"
+description: "Today I stumbled on an article from Fat Athlete, a fellow weight losing blogger titled A Letter to Future Me (and Maybe Some of You) . The point of the post is "
 pubDate: "2011-05-03"
 author: "Dale Sackrider"
 tags: ["Weight Loss Journal"]
 draft: false
 ---
 
+Today I stumbled on an article from Fat Athlete, a fellow weight losing blogger titled <a title="Fat Athlete: A Letter to Future Me" href="http://fatathlete.blogspot.com/2009/06/letter-to-future-me-and-maybe-some-of.html">A Letter to Future Me (and Maybe Some of You)</a>. The point of the post is so the author can encourage herself after having lost the weight that even though she may be dealing with a not so great loose skin body instead of the hard body she had imagined when she started the journey, there are still several things she can do that made the work worth the effort.
 
+I'm inspired by her obvious confidence that she will lose the weight eventually and the realistic view that having done so won't magically make her the two piece bikini wearing babe she may have imagined when she started. Even though I'm a guy, I still totally relate to her post.
+
+The letter she wrote herself refers to a few things she wasn't able to do at the larger weights that she can do now that she has slimmed down. After reading it, I thought what are the things I'd like to do that I currently cannot due to my weight. This blog has been great in helping me track progress and milestones so I thought I should write down some of the things that I can do after I lose more weight:
+<ol>
+	<li><strong>Stop paying more for clothes based on size</strong>. I know this gives images of Walmart shopping with the $2 more for bigger sizes signs and I don't really get my clothes at Walmart anymore because I hate what I consider to be lower quality. But I pay more at Big and Tall stores than others because of my weight. I recently bought a few shirts at $60 a piece from XL Male, later to see a co-worker wearing a very similar shirt he bought at Kohl's or Target for $15.</li>
+	<li><strong>Sky Dive</strong>. A few years ago, my brother offered to pay for me to join him sky diving IF I could get under the weight limit. At the time that was 240lbs however a recent query shows 230 lbs as the limit. I'm sure if differs from place to place, but I want to jump out of a perfectly good airplane - once.</li>
+	<li><strong>Go to a theme park and be able to ride any ride without concern for my girth</strong>. Its been a while since I've deal with this issue but only because I haven't attempted to get on any roller coasters in years. At my heaviest I was almost 330 lbs, living in Ohio with two of the best theme parks in America within two hours drive. I was given free tickets to Kings Island in Cincinnati and I spent the day stepping over great roller coasters to wait on the other side while others enjoyed the ride. I look forward to being able to go to a theme park known for its amazing roller coasters and not worrying if I'm going labeled a guest of unusual size.</li>
+	<li><strong>Fly coach without taking an empty bottle cap with me</strong>. Follow me here - when I fly I have challenges that thinner people don't have. When I get on the plane, I know everyone that already has a seat hopes I'm not going to stop at their row and say - hey, I'm right next to you! But that could be true even after I lose the weight. I also know that nobody is comfortable in coach - I'm not looking for a miracle here.  The problem I know will go away with the weight is the trouble I have with the seat automatically reclining on me. You see, my legs fill the space between the arm rests - putting constant pressure on the recline button and making it impossible for me to keep the seat in an upright position - so I usually end up with a flight attendant asking me to put my seat forward when I wasn't actually trying to lean back.  In order for me to keep from falling back in the chair - I have found that a bottle cap from a water or soda fits perfectly over the button keeping it from being accidentally pressed. The first time I can get on a plane without having to do this annoying extra step, will be a cause for celebration.</li>
+</ol>
+There are a lot more but off the top of my head, these are some of the things that have bothered me specifically due to my weight...

@@ -1,17 +1,20 @@
 ---
 title: "#163: Pat's Run Results"
-description: "[caption id=\"attachment_3263\" align=\"alignleft\" width=\"35\u4201\u04655A\u0418\u0301I\u0578I\u0571\u0309t\ud957\udd5c\u0365\u9535vw\u0596vR3#c2\"FFS%G5'V&W7VG2#\"7&3&GG9\u038b\\]Z]YZ[KX\u06dd[\\Y\u030cLK ]\u051d[T\\glts-2011.png\" alt=\"\" width=\"359"
+description: "[caption id=\"attachment_3263\" align=\"alignleft\" width=\"359\" caption=\"My Pat&#39;s Run Results\"] [/caption] So there you have it! My ego said I could do it in 42"
 pubDate: "2011-04-16"
 author: "Dale Sackrider"
 tags: ["A year on purpose"]
 draft: false
 ---
 
-[caption id="attachment_3263" align="alignleft" width="35䈁ѥ5AИ́IոIձ̉t񥵜ͥ锵vw֖vR3#c2"FFS%G5'V&W7VG2#"7&3&GG9΋\]Z]YZ[KX۝[\Y̌LK]ԝ[T\glts-2011.png" alt="" width="359" height="290" />[/captiont4(4)MѡɔԁٔЄ5䁕ͅ$ձЁs"ג'&6BCRג&W7VG2&VBCРФג&vvW7I\Z[0\^H[[YHH]H]OH^Hgt Times - Pat's Run 2011" href="https://iquitagain.com/wpѕн̼ļн͹|rr#ג7ƗG3*6FVRFvWB6vW"V6֖Yˈ0IH\HYYY܈XH\^HX[؛[K0g would be very happy with a 11 or 12 min mile pace for thɅѡЁȁ̀ā́̀ȰݽձvR&R""6wB6FVRFvWB6vW"B6\XXZ[H[[[\[H[YH[Z]BBHorgot my headphones, so the whole race was just me and myѡ՝̸ѡȁչ̸
-QЁv2f7B'WBB6VB&RFBv2G'rFVWWvFH\[۝وYH]p]ۈ\\gck that seemed like it was dancing as she ran - I couldn'ЁٕѕԁݡЁЁ݅́хѽЁЁ݅́ѕwFrFvF66Fv6RVgBRFRGW7BgI\X]LX\HH\ۉ0[\܈HZ[K0:-)
+[caption id="attachment_3263" align="alignleft" width="359" caption="My Pat&#39;s Run Results"]<img class="size-full wp-image-3263" title="PatsRun-Results-2011" src="https://iquitagain.com/wp-content/uploads/2011/04/PatsRun-Results-2011.png" alt="" width="359" height="290" />[/caption]
 
-There were more hills than I was mentally or physɕɕȸ
-ٕ́́͡ݕɔ٥vrRF\*f֖Ɩ,*vWBvV'V7V"֖֙KIH][\H[[[H]\\Hۛing my best chance at a faster time is a smaller waist li
-	Mո٥Mхմ݅́ɕ䁍vVBb֖R&Vv7FW&VBF'VFR&6RFvRvW&R&HYY]\]HY[[[HZ]Y܈YH[ish at the end - I was a full 15 minutes behind him.
+So there you have it! My ego said I could do it in 42, my brain said 45, my results read 48:18.
 
-&
+My biggest complaint is not my total time - its <a title="My Split Times - Pat's Run 2011" href="https://iquitagain.com/wp-content/uploads/2011/04/wpid-snap20110416_084840-180x300.png">my splits</a>.  I continue to get slower each mile.  I'm not sure if speed or pace is my real problem.  I would be very happy with a 11 or 12 min mile pace for the marathon, but if mile 2 is 11 and mile 3 is 12, would mile 10 be 12 or 18? I can't continue to get slower and slower each mile and still finish in the time limit.
+
+I forgot my headphones, so the whole race was just me and my thoughts... and 30,000 other runners.  The first mile was fast but it could be that I was trying to keep up with the girl in front of me with the tattoo on her lower back that seemed like it was dancing as she ran - I couldn't even tell you what it was a tattoo of, but it was entertaining to watch. Calm down - she left me in the dust after about 50 yards - I wasn't ogling her for a mile...  :-)
+
+There were more hills than I was mentally or physically prepared for.  And my shins and calves were giving me the familiar pain I get when I run a sub-10 min mile. I'm sitting here thinking how can I get faster - knowing my best chance at a faster time is a smaller waist line!  Being in Sun Devil Stadium was pretty cool and a friend of mine registered to run the race too - we were able to meet up at the beginning and he waited for me to finish at the end - I was a full 15 minutes behind him.
+
+&nbsp;

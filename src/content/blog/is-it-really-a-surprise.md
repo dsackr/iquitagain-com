@@ -1,14 +1,14 @@
 ---
 title: "Is it really a surprise?"
-description: "Is there really anyone surprised in the neglect this blog\u0301\u0559\u0255 $\u0461\u0461\u0300$E\u0565\u0438rv\"&vC*W7BvF6VBFRfRV\u0196RBYXKX]H\\\\^HYH\u061b and life everyday for a year. It inspired me to drop b"
+description: "Is there really anyone surprised in the neglect this blog has suffered? I mean the name of the blog is \"I Quit... Again!\", right? I just watched the movie Julie"
 pubDate: "2010-04-01"
 author: "Dale Sackrider"
 tags: ["Weight Loss Journal"]
 draft: false
 ---
 
-Is there really anyone surprised in the neglect this bloǵՙɕ
-$ѡѡ̀$Eեиrv"&vC*W7BvF6VBFRfRVƖRBYXKX]H\\^HYH؛ and life everyday for a year.  It inspired me to drop b䁵䁑䁽ݕЁ́
-ɕ͍Ё܂wFw26VB&RFffW&VB&VBW&RРФ2r2v\KHX^H\[]H[H[\]HHH]HܚYut three days this week during my lunch hour and once at щɅѥ
-$ѥѡЁݕЁr'WB6wB6wfRFR&w&W72vG6WfW"*	]HXX[H]ۈ[[HH\Y[[۝'hs ago.  I truly believe my problem isn't my activity léٕ䁕ѥ̸4(4)]$ٕȁЁ䁕ѥvFW"6G&*FwBr'WBFG26fRF6	[H[Z[HH\]YZ[H[HHH]H'hree abandoned blogs at the moment; the family blog, thisݕЁ́	ɕ
-QѢr2vVBF&WGFW"FfB6&rbw&FW'2F]H[[\[[X\Hۈ\[ۈ]\'than continue hosting my own blogs.  Any thoughts?
+Is there really anyone surprised in the neglect this blog has suffered?  I mean the name of the blog is "I Quit... Again!", right?  I just watched the movie Julie and Julia, about a blogger who blogs her way through a cookbook and life everyday for a year.  It inspired me to drop by my dusty old weight loss blog and reminisce about how things should be different around here.
+
+As long as I'm here, I may as well give you an update - I have worked out three days this week during my lunch hour and once at football practice.  I'm still thinking about weight loss, but I can't say I've made any progress whatsoever.  I have actually put on 5lbs since I started football 4 months ago.  I truly believe my problem isn't my activity level, its my eating habits.
+
+Will I ever get my eating under control?  I don't know but I think its safe to say you will not likely be updated daily in a blog - I have three abandoned blogs at the moment; the family blog, this weight loss blog, and my Bible reading blog.  The truth is, I would do better to find a co-op blog of writers that I would jump in and publish a post on occasion rather than continue hosting my own blogs.  Any thoughts?
