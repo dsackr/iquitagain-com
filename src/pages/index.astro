@@ -1,0 +1,145 @@
+---
+import BaseLayout from '../layouts/BaseLayout.astro';
+import FormattedDate from '../components/FormattedDate.astro';
+import { getCollection } from 'astro:content';
+
+const allPosts = await getCollection('blog', ({ data }) => !data.draft);
+const sortedPosts = allPosts.sort((a, b) => b.data.pubDate.valueOf() - a.data.pubDate.valueOf());
+
+// Featured key posts
+const featuredSlugs = [
+  'quest',
+  'my-name-is-dale-and-im-diabetic',
+  'the-pain-of-regret-has-become-a-chronic-pain-in-my-life',
+  'finding-my-way-back'
+];
+const featuredPosts = featuredSlugs
+  .map(slug => sortedPosts.find(p => p.id === slug))
+  .filter(Boolean);
+
+const recentPosts = sortedPosts.slice(0, 10);
+---
+
+<BaseLayout>
+  <!-- Hero Section -->
+  <section class="mb-14 pt-2 sm:pt-4">
+    <div class="p-8 sm:p-10 rounded-3xl bg-gradient-to-br from-emerald-50/90 via-teal-50/40 to-emerald-100/30 dark:from-zinc-900 dark:via-zinc-900/80 dark:to-zinc-950 border border-emerald-200/80 dark:border-zinc-800 shadow-sm">
+      <div class="inline-flex items-center gap-2 px-3 py-1 rounded-full text-xs font-semibold bg-emerald-100 dark:bg-emerald-950/70 text-emerald-900 dark:text-emerald-300 mb-6">
+        I Quit... Again! • Health, Running & Fitness Archive
+      </div>
+
+      <h1 class="text-3xl sm:text-4xl font-extrabold text-zinc-900 dark:text-zinc-50 tracking-tight leading-tight">
+        Another blog about weight loss, running... and never giving up.
+      </h1>
+
+      <p class="text-base sm:text-lg text-zinc-700 dark:text-zinc-300 mt-4 leading-relaxed max-w-2xl">
+        A brutally honest, decade-long personal journal documenting the peaks and valleys of health, half-marathons, diabetes management, habit changes, and the relentless discipline to get back up every time you stumble.
+      </p>
+
+      <div class="mt-8 flex flex-wrap items-center gap-3 text-sm">
+        <a href="/archive" class="px-5 py-2.5 rounded-xl bg-emerald-600 hover:bg-emerald-700 text-white font-semibold shadow-sm transition-colors">
+          View posts →
+        </a>
+        <a href="/posts/quest" class="px-5 py-2.5 rounded-xl border border-emerald-300 dark:border-zinc-700 bg-white dark:bg-zinc-800 text-zinc-800 dark:text-zinc-200 font-semibold hover:bg-emerald-50 dark:hover:bg-zinc-700 transition-colors">
+          The Quest
+        </a>
+      </div>
+    </div>
+  </section>
+
+  <!-- Featured Highlights -->
+  {featuredPosts.length > 0 && (
+    <section class="mb-14">
+      <div class="flex items-center justify-between mb-6 pb-2 border-b border-zinc-200 dark:border-zinc-800">
+        <h2 class="text-xl font-bold text-zinc-900 dark:text-zinc-100">
+          Featured Essays & Milestones
+        </h2>
+        <a href="/archive" class="text-xs font-semibold text-emerald-600 dark:text-emerald-400 hover:underline">
+          View posts →
+        </a>
+      </div>
+
+      <div class="grid sm:grid-cols-2 gap-4">
+        {featuredPosts.map((post) => (
+          <article class="p-6 rounded-2xl border border-zinc-200/80 dark:border-zinc-800/80 bg-white/70 dark:bg-zinc-900/40 hover:bg-white dark:hover:bg-zinc-900 hover:border-emerald-300 dark:hover:border-zinc-700 transition-all flex flex-col justify-between">
+            <div>
+              <div class="flex items-center justify-between text-xs text-zinc-400 dark:text-zinc-500 mb-2">
+                <span class="font-semibold text-emerald-700 dark:text-emerald-300">
+                  ✍️ {post?.data.author}
+                </span>
+                <FormattedDate date={post?.data.pubDate || new Date()} />
+              </div>
+
+              <h3 class="text-lg font-bold text-zinc-900 dark:text-zinc-100 hover:text-emerald-600 dark:hover:text-emerald-400 transition-colors">
+                <a href={`/posts/${post?.id}`}>
+                  {post?.data.title}
+                </a>
+              </h3>
+
+              <p class="mt-2 text-sm text-zinc-600 dark:text-zinc-400 line-clamp-3 leading-relaxed">
+                {post?.data.description}
+              </p>
+            </div>
+
+            <div class="mt-4 pt-3 border-t border-zinc-100 dark:border-zinc-800/60">
+              <a href={`/posts/${post?.id}`} class="text-xs font-semibold text-emerald-600 dark:text-emerald-400 hover:underline">
+                Read post →
+              </a>
+            </div>
+          </article>
+        ))}
+      </div>
+    </section>
+  )}
+
+  <!-- Recent Timeline -->
+  <section>
+    <div class="flex items-center justify-between mb-6 pb-2 border-b border-zinc-200 dark:border-zinc-800">
+      <h2 class="text-xl font-bold text-zinc-900 dark:text-zinc-100">
+        Recent Journal Entries
+      </h2>
+      <a href="/archive" class="text-xs font-semibold text-emerald-600 dark:text-emerald-400 hover:underline">
+        View posts →
+      </a>
+    </div>
+
+    <div class="space-y-3">
+      {recentPosts.map((post) => (
+        <article class="p-4 rounded-xl border border-zinc-200/60 dark:border-zinc-800/60 bg-white/40 dark:bg-zinc-900/20 hover:bg-white dark:hover:bg-zinc-900 flex flex-col sm:flex-row sm:items-center sm:justify-between gap-2 transition-all">
+          <div>
+            <div class="flex items-center gap-2 text-xs text-zinc-400 dark:text-zinc-500 mb-1">
+              <span class="font-medium text-emerald-700 dark:text-emerald-300">
+                {post.data.author}
+              </span>
+              <span>•</span>
+              <FormattedDate date={post.data.pubDate} />
+              {post.data.tags && post.data.tags.length > 0 && (
+                <span class="text-zinc-400 dark:text-zinc-500">
+                  • #{post.data.tags[0]}
+                </span>
+              )}
+            </div>
+            <h3 class="text-base font-semibold text-zinc-900 dark:text-zinc-100 hover:text-emerald-600 dark:hover:text-emerald-400 transition-colors">
+              <a href={`/posts/${post.id}`}>
+                {post.data.title}
+              </a>
+            </h3>
+          </div>
+
+          <a href={`/posts/${post.id}`} class="text-xs font-medium text-emerald-600 dark:text-emerald-400 hover:underline shrink-0">
+            Read →
+          </a>
+        </article>
+      ))}
+    </div>
+
+    <div class="mt-10 text-center">
+      <a
+        href="/archive"
+        class="inline-flex items-center justify-center px-6 py-3 rounded-xl border border-zinc-300 dark:border-zinc-700 font-medium text-sm text-zinc-700 dark:text-zinc-200 hover:bg-zinc-100 dark:hover:bg-zinc-800 transition-colors"
+      >
+        View posts →
+      </a>
+    </div>
+  </section>
+</BaseLayout>

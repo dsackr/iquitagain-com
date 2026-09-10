@@ -1,0 +1,34 @@
+---
+import ThemeToggle from './ThemeToggle.astro';
+
+const navItems = [
+  { label: 'Home', href: '/' },
+  { label: 'Archive', href: '/archive' },
+  { label: 'The Quest', href: '/posts/quest' },
+  { label: 'About', href: '/about' },
+];
+---
+
+<header class="w-full border-b border-zinc-200/80 dark:border-zinc-800/80 bg-white/80 dark:bg-zinc-950/80 backdrop-blur-md sticky top-0 z-50">
+  <div class="max-w-4xl mx-auto px-4 sm:px-6 h-16 flex items-center justify-between">
+    <a href="/" class="flex items-center gap-2 font-black text-lg tracking-tight text-zinc-900 dark:text-zinc-50 hover:text-emerald-600 dark:hover:text-emerald-400 transition-colors">
+      <span class="p-1.5 rounded-lg bg-emerald-100 dark:bg-emerald-950 text-emerald-700 dark:text-emerald-300 text-sm">👟</span>
+      <span>I Quit... <span class="text-emerald-600 dark:text-emerald-400">Again!</span></span>
+    </a>
+
+    <div class="flex items-center gap-1 sm:gap-2">
+      <nav class="flex items-center gap-1">
+        {navItems.map((item) => (
+          <a
+            href={item.href}
+            class="px-3 py-1.5 rounded-lg text-sm font-medium text-zinc-600 hover:text-zinc-900 dark:text-zinc-400 dark:hover:text-zinc-100 hover:bg-zinc-100/70 dark:hover:bg-zinc-800/70 transition-colors"
+          >
+            {item.label}
+          </a>
+        ))}
+      </nav>
+      <div class="h-4 w-px bg-zinc-200 dark:bg-zinc-800 mx-1"></div>
+      <ThemeToggle />
+    </div>
+  </div>
+</header>
