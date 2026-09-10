@@ -1,10 +1,21 @@
 {
   "$schema": "node_modules/wrangler/config-schema.json",
   "name": "iquitagain-com",
-  "compatibility_date": "2026-09-09",
-  "compatibility_flags": ["nodejs_compat"],
+  "compatibility_date": "2026-09-08",
+  "observability": {
+    "enabled": true
+  },
   "assets": {
-    "directory": "./dist",
-    "binding": "ASSETS"
-  }
+    "directory": "dist"
+  },
+  "routes": [
+    {
+      "pattern": "iquitagain.com/*",
+      "zone_name": "iquitagain.com"
+    },
+    {
+      "pattern": "www.iquitagain.com/*",
+      "zone_name": "iquitagain.com"
+    }
+  ]
 }
